@@ -17,6 +17,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Phantom X-13 Photographer 😄
+
+![Image](https://github.com/user-attachments/assets/db5a4988-3a87-4b79-be06-c60efa225095)
+
+---
+
 ## The Autonomous Phantom X-13 Commander 😄
 
 ---
