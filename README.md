@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Blackout Mobile Frosty 😄
+
+![Image](https://github.com/user-attachments/assets/a61e74c0-282f-45a1-9e10-c969a61447fd)
+
+---
+
 ## The Autonomous Banach X-13 Blackout Andorinha of Bosta 😄
 
 ![Image](https://github.com/user-attachments/assets/1ec5c853-fa49-4030-b157-1412fd56b945)
