@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Blackout Pardal 😄
+
+![Image](https://github.com/user-attachments/assets/1790c391-1ec9-4995-8ce4-6a72808897ee)
+
+---
+
 ## The Autonomous Banach X-13 Blackout Miolo 😄
 
 ![Image](https://github.com/user-attachments/assets/747860ae-7693-49ab-a5e9-c6af9151b4b8)
