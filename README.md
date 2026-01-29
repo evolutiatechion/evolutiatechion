@@ -15,6 +15,12 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+## The Autonomous Banach X-13 Blackout Dreamer 😄
+
+---
+
+![Image](https://github.com/user-attachments/assets/bd8d02f2-8c5d-42e2-b781-e5d15d0c89c3)
+
 ---
 
 ## The Autonomous Banach X-13 Blackout Action Commander 😄
