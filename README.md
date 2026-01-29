@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Xirigidum TUMTUM 😄
+
+![Image](https://github.com/user-attachments/assets/e87f5ed3-16cd-4e8f-bbcd-264f42262e3f)
+
+---
+
 ## The Autonomous Banach X-13 Xapao Fly 😄
 
 ![Image](https://github.com/user-attachments/assets/cee54cab-1d83-412c-abd7-81240b0b5e8e)
