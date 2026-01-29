@@ -29,7 +29,9 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Lateral-Side View, Vixe, Transition Praticu - No, Translucent changed of Color 😄
+## The 4X-DVD - Lateral-Side View
+
+**Vixe, Prasticu Transition - No, Translucent changed of Color** 😄
 
 ![Image](https://github.com/user-attachments/assets/ca6b88f5-bbc0-40a8-83d7-21aa8cc6755b)
 
