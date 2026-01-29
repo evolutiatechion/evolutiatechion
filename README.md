@@ -37,6 +37,11 @@ Here are some ideas to get you started:
 
 ![Image](https://github.com/user-attachments/assets/0d5e4cca-206c-4d5e-a4ea-4a6887490ef0)
 
+
+## The 4X-DVD - Vixe to PULL 😄
+
+![Image](https://github.com/user-attachments/assets/df5cc79c-767b-4dd4-b836-2dee66de26cd)
+
 ---
 
 ## The 4X-DVD - Let's go baby, Vene for papito, Beni Zaita 😄
