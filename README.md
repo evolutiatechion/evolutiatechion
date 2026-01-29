@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Xapao of Community 😄
+
+![Image](https://github.com/user-attachments/assets/e8397d6a-8dcb-43cf-bb79-90fddf2b8e96)
+
+---
+
 ## The Autonomous Banach X-13 Xapao of Gaivotas 😄
 
 ![Image](https://github.com/user-attachments/assets/c5339943-596a-4edd-8db6-898e20191f56)
