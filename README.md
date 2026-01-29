@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Tutuba Fly Birita 😄
+
+![Image](https://github.com/user-attachments/assets/f722d960-9e48-42bd-8c0d-7b188cfc4cb6)
+
+---
+
 ## The Autonomous Banach X-13 Tutuba Fly 😄
 
 ![Image](https://github.com/user-attachments/assets/c6e9e45d-0b37-4e8d-a2bd-1da2f927f57e)
