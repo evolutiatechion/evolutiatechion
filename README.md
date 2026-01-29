@@ -15,6 +15,16 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+---
+
+## The Autonomous Phantom X-13 Commander 😄
+
+---
+
+![Image](https://github.com/user-attachments/assets/fcb0d277-b8b4-4d78-b22f-a8f15d286b85)
+
+---
+
 ## The Autonomous Phantom X-13 Combat 😄
 
 ---
