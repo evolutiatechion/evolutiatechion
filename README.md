@@ -1,6 +1,6 @@
-## The Autonomous Banach X-13 Blackout Action Commander ⚡
+---
 
-![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
+## The Emulator Arma Paia ⚡ 
 
 ---
 
@@ -21,7 +21,9 @@ Here are some ideas to get you started:
 
 ---
 
-## The Emulator Arma Paia 😄
+## The Autonomous Banach X-13 Blackout Action Commander 😄
+
+![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
 
 ---
 
