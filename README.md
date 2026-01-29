@@ -21,6 +21,14 @@ Here are some ideas to get you started:
 
 ![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
 
+
+---
+
+## The Autonomous Banach X-13 - Pipicou The Sound in Roading 😄
+
+
+![Image](https://github.com/user-attachments/assets/153fa2a5-4d81-440e-b5ac-568bed387a9c)
+
 ---
 
 ## The Autonomous Banach X-13 - Di-Parta Cabo-Baba in Rodao 😄
