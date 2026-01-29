@@ -21,6 +21,12 @@ Here are some ideas to get you started:
 
 ![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
 
+---
+
+## The Autonomous Banach X-13 - Sapo Bana Lux 😄
+
+
+![Image](https://github.com/user-attachments/assets/65f07f0c-dc9a-4d40-bd91-bbe2c94ad4d2)
 
 ---
 
