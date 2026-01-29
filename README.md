@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Tubao Man 😄
+
+![Image](https://github.com/user-attachments/assets/b0da259b-a576-4f93-8d42-9cd961542948)
+
+---
+
 ## The Autonomous Banach X-13 Panelada 😄
 
 ![Image](https://github.com/user-attachments/assets/6ae29b8b-4b42-4bf7-8492-d48d19146de0)
