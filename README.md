@@ -25,7 +25,7 @@ Here are some ideas to get you started:
 
 ---
 
-## The Autonomous Banach X-13 Pirocao 😄
+## The Autonomous Banach X-13 Pirocao Prastiku 😄
 
 ![Image](https://github.com/user-attachments/assets/635cadf0-33f2-43a8-b3d6-fc0125e35cb6)
 
