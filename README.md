@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Blackout Expreme 😄
+
+![Image](https://github.com/user-attachments/assets/afd34557-50b5-40ea-a893-b1696e142488)
+
+---
+
 ## The Autonomous Banach X-13 Blackout Agulhas Vudoka 😄
 
 ![Image](https://github.com/user-attachments/assets/c78f11bf-7a82-4d70-a9da-e2a3a8fc3576)
