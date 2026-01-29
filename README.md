@@ -23,6 +23,14 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Bigao of Boi 😄
+
+---
+
+![Image](https://github.com/user-attachments/assets/1b7b549b-939d-42cd-b7ca-326e3eb2aa5a)
+
+---
+
 ## The Autonomous Banach X-13 Laterna Of Afogados 😄
 
 ![Image](https://github.com/user-attachments/assets/e6653214-c6d6-47b2-b870-fba28bc58cb4)
