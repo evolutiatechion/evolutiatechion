@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 - This is Dangerous, Running in Max Sound and 500 AMSL SEA 😄
+
+![Image](https://github.com/user-attachments/assets/0d0efa08-82a7-45ab-982c-9ba72c753281)
+
+---
+
 ## The Autonomous Banach X-13 - This is Best, The Arrasta Foot 😄
 
 ![Image](https://github.com/user-attachments/assets/34634a10-abcc-4658-9ca7-45957c7b8b58)
