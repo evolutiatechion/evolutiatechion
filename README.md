@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 ---
 
-## The Autonomous Banach X-13 - Vixe, Cable Dabeni & Caiba Dabena de Passenger 😄
+## The Autonomous Banach X-13 - Cable Dabeni & Bassora Dabena of Gaiatos 😄
 
 ![Image](https://github.com/user-attachments/assets/a5c52ae9-a7ae-4972-864f-a96ed0ce6447)
 
