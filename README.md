@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The 4X-DVD - Let's go baby, Vene for papito, beni 😄
+
+![Image](https://github.com/user-attachments/assets/7bbe90cc-6f35-4f6f-b078-78eb56408aec)
+
+---
+
 ## The 4X-DVD - Cable Dabeni & Bassora Dabena of Gaiatos 😄
 
 ![Image](https://github.com/user-attachments/assets/a5c52ae9-a7ae-4972-864f-a96ed0ce6447)
