@@ -1,4 +1,4 @@
-## The Novel Research and Prototype Evolution Technologies ⚡
+## Evolution Technologies - The Novel Research and Prototype⚡
 
 <!--
 **evolutiatechion/evolutiatechion** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
