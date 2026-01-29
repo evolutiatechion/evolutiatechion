@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 - Di-Parta Cabo-Baba in Rodao 😄
+
+![Image](https://github.com/user-attachments/assets/d3788d3a-4ee8-4110-843a-c9c38be44b31)
+
+---
+
 ## The Autonomous Banach X-13 - Lendia Cabao-Lemao in Rodao  😄
 
 
