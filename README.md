@@ -24,7 +24,7 @@ Here are some ideas to get you started:
 
 ---
 
-## The Autonomous Banach X-13 Xegando of Cabao-Bambao-Depature 😄
+## The Autonomous Banach X-13 Xegando of Cabao-Bambao-Departure 😄
 
 
 ![Image](https://github.com/user-attachments/assets/25a9bbe6-4720-4fb8-a4cf-d68ca857401d)
