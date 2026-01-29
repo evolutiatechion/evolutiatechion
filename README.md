@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Xupa Cabra 😄
+
+![Image](https://github.com/user-attachments/assets/ad8c5022-dff7-4411-934e-11de060d90e9)
+
+---
+
 ## The Autonomous Banach X-13 Meleka Of Panes 😄
 
 ![Image](https://github.com/user-attachments/assets/dea519f7-87af-4371-9f30-ec87de10a6e8)
