@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The 4X-DVD - Front-Side View, Master of Katia, Oh Vei Papis 😄
+
+![Image](https://github.com/user-attachments/assets/8ea20721-a306-4fa2-8ab0-1694cbf977b6)
+
+---
+
 ## The 4X-DVD - Front-Side View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/15eeecbd-c05e-40a1-bf39-3052ed66ed2c)
