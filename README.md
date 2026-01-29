@@ -1,9 +1,3 @@
-**- Vixe Man, Nun Servi of nada**
-
-## The New EvoX Aquatic Flying Car Prototype
-
-![Image](https://github.com/user-attachments/assets/4a88f414-62a6-4541-ad20-518c3b35f01b)
-
 <!--
 **evolutiatechion/evolutiatechion** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -18,3 +12,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+## The Phantom X-14 Vehicle 😄
+
+---
+
+![Image](https://github.com/user-attachments/assets/4a88f414-62a6-4541-ad20-518c3b35f01b)
+
+---
+
+![Image](https://github.com/user-attachments/assets/bbf1e7ba-d0ba-416d-a6cd-eb8da66e8a20)
