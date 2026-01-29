@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Blackout Migusta Spier Commander 😄
+
+![Image](https://github.com/user-attachments/assets/08aac9ab-8915-4bc3-8e72-6e836721ebec)
+
+---
+
 ## The Autonomous Banach X-13 Bigao of Boi 😄
 
 ---
