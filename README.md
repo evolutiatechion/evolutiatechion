@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 - Vixe Finish Repetory Spiral 😄
+
+![Image](https://github.com/user-attachments/assets/8e4e2761-4046-4f23-9702-11f0dc30ddc5)
+
+---
+
 ## The Autonomous Banach X-13 - Running in Max Sound in 500 AMSL SEA 😄
 
 ![Image](https://github.com/user-attachments/assets/0d0efa08-82a7-45ab-982c-9ba72c753281)
