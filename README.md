@@ -23,12 +23,6 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Come On, Charlote Davadao, Power On Soundao 😄
-
-![Image](https://github.com/user-attachments/assets/44a4bc66-23a0-40e4-b2b6-11c8382e9106)
-
----
-
 ## The 4X-DVD - Front-Side View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/15eeecbd-c05e-40a1-bf39-3052ed66ed2c)
@@ -54,6 +48,12 @@ Here are some ideas to get you started:
 ## The Autonomous Banach X-13 - Vixe, Zoia Dabeni Charlotando 😄
 
 ![Image](https://github.com/user-attachments/assets/c5ab67d4-282c-4f4f-8346-58883f6dbe7c)
+
+---
+
+## The 4X-DVD - Come On, Charlote Davadao, Power On Soundao 😄
+
+![Image](https://github.com/user-attachments/assets/44a4bc66-23a0-40e4-b2b6-11c8382e9106)
 
 ---
 
