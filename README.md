@@ -15,6 +15,12 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+## The Autonomous Phantom X-14 Combat 😄
+
+---
+
+![Image](https://github.com/user-attachments/assets/56ef9096-eace-457e-aaf3-3518a87ffc47)
+
 ---
 
 ## The Autonomous Phantom X-14 Explorer 😄
