@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Blackout Ku Kenti 😄
+
+![Image](https://github.com/user-attachments/assets/4d45c2a6-4544-490a-bcf1-f5f4f75efb59)
+
+---
+
 ## The Autonomous Banach X-13 Blackout Mobile Frosty 😄
 
 ![Image](https://github.com/user-attachments/assets/a61e74c0-282f-45a1-9e10-c969a61447fd)
