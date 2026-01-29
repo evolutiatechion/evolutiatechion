@@ -29,9 +29,9 @@ Here are some ideas to get you started:
 
 ---
 
-## Vixe Mamis and Manos Brother 😄
+## The 4X-DVD - Vixe to PULL, Mama Super Star 😄
 
-![Image](https://github.com/user-attachments/assets/338639a2-4fb4-4f29-b823-b4f0533bc13f)
+![Image](https://github.com/user-attachments/assets/4e62a0f1-a4e9-4c75-bca1-7410c649b7df)
 
 ---
 
@@ -47,9 +47,9 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Vixe to PULL, Mama Super Star 😄
+## Vixe Mamis and Manos Brother 😄
 
-![Image](https://github.com/user-attachments/assets/4e62a0f1-a4e9-4c75-bca1-7410c649b7df)
+![Image](https://github.com/user-attachments/assets/338639a2-4fb4-4f29-b823-b4f0533bc13f)
 
 ---
 
