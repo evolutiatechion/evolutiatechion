@@ -23,29 +23,33 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Front-Side View, Master of Katia, Oh Vei Papis 😄
+## Front-Side View, Master of Katia, Oh Vei Papis 😄
 
 ![Image](https://github.com/user-attachments/assets/8ea20721-a306-4fa2-8ab0-1694cbf977b6)
 
 ---
 
-## The 4X-DVD - Vixe Mamis and Manos Brother 😄
+## Vixe Mamis and Manos Brother 😄
 
 ![Image](https://github.com/user-attachments/assets/338639a2-4fb4-4f29-b823-b4f0533bc13f)
 
 ---
 
-## The 4X-DVD - Lateral-Side View
-
-**Vixe, Prasticu Transition - No, Translucent changed of Color** 😄
+## Vixe, Prasticu Transition - No, Translucent changed of Color 😄
 
 ![Image](https://github.com/user-attachments/assets/ca6b88f5-bbc0-40a8-83d7-21aa8cc6755b)
 
-## The 4X-DVD - Lateral-Side View, Mama Super Star, Teretete, Vixe 😄
+---
+
+## Lateral-Side View, Mama Super Star, Teretete, Vixe 😄
 
 ![Image](https://github.com/user-attachments/assets/4e36b0b7-8c06-49f0-84d7-3f510fac96ed)
 
 ---
+
+## The 4X-DVD - Vixe to PULL 😄
+
+![Image](https://github.com/user-attachments/assets/df5cc79c-767b-4dd4-b836-2dee66de26cd)
 
 ## The 4X-DVD - Front-Side View, Beni Rossi 😄
 
@@ -54,11 +58,6 @@ Here are some ideas to get you started:
 ## The 4X-DVD - Back-Side View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/0d5e4cca-206c-4d5e-a4ea-4a6887490ef0)
-
-
-## The 4X-DVD - Vixe to PULL 😄
-
-![Image](https://github.com/user-attachments/assets/df5cc79c-767b-4dd4-b836-2dee66de26cd)
 
 ---
 
