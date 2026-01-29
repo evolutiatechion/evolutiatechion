@@ -1,5 +1,3 @@
----
-
 ## The Emulator Arma Paia ⚡ 
 
 <!--
