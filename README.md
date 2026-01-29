@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Maloca Fly 😄
+
+![Image](https://github.com/user-attachments/assets/576ac707-5b2e-4550-bafe-2d965a915cea)
+
+---
+
 ## The Autonomous Banach X-13 Tutuba Fly Glasses 😄
 
 ![Image](https://github.com/user-attachments/assets/f722d960-9e48-42bd-8c0d-7b188cfc4cb6)
