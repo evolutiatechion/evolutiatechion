@@ -21,6 +21,14 @@ Here are some ideas to get you started:
 
 ![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
 
+
+---
+
+## The Autonomous Banach X-13 Xegando of Cabao-Babao 😄
+
+
+![Image](https://github.com/user-attachments/assets/3198ae04-c0f3-41aa-8a16-40d2bbbc6513)
+
 ---
 
 ## The Autonomous Banach X-13 Xegando of Malino-Cating 😄
