@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-## The Autonomous Phantom X-14 Combat 😄
+## The Autonomous Phantom X-13 Combat 😄
 
 ---
 
@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 ---
 
-## The Autonomous Phantom X-14 Explorer 😄
+## The Autonomous Phantom X-13 Explorer 😄
 
 ---
 
@@ -32,7 +32,7 @@ Here are some ideas to get you started:
 
 ---
 
-## The Autonomous Phantom X-14 Navigator 😄
+## The Autonomous Phantom X-13 Navigator 😄
 
 ---
 
@@ -40,7 +40,7 @@ Here are some ideas to get you started:
 
 ---
 
-## The Phantom X-14 Vehicle 😄
+## The Phantom X-13 Vehicle 😄
 
 ---
 
