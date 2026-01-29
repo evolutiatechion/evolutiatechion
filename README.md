@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 - The Front-Side Pinou 😄
+
+![Image](https://github.com/user-attachments/assets/3a5f7ebd-f5a3-4435-b78d-b8e9a0ccd42d)
+
+---
+
 ## The Autonomous Banach X-13 - VBatata Doce in Roading 😄
 
 ![Image](https://github.com/user-attachments/assets/8a73d727-407d-4b74-a0e0-bc2baeee56a1)
