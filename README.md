@@ -29,9 +29,11 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Come On, Beni Rossi 😄
+## The 4X-DVD - Front-Side View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/15eeecbd-c05e-40a1-bf39-3052ed66ed2c)
+
+## The 4X-DVD - Back-Side View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/0d5e4cca-206c-4d5e-a4ea-4a6887490ef0)
 
