@@ -29,6 +29,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The 4X-DVD - Lateral-Side View, Eita, Mama Super Star, Teretete, Vixe 😄
+
+![Image](https://github.com/user-attachments/assets/ca6b88f5-bbc0-40a8-83d7-21aa8cc6755b)
+
+---
+
 ## The 4X-DVD - Front-Side View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/15eeecbd-c05e-40a1-bf39-3052ed66ed2c)
