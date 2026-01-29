@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Super Faber 😄
+
+![Image](https://github.com/user-attachments/assets/4f3ad656-af04-4fcd-ab27-f7f25520d1ec)
+
+---
+
 ## The Autonomous Banach X-13 Super Bola 😄
 
 
