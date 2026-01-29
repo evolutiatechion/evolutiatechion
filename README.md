@@ -23,6 +23,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 - Vixe, Cable Dabeni & Caiba Dabena de Passenger 😄
+
+![Image](https://github.com/user-attachments/assets/a5c52ae9-a7ae-4972-864f-a96ed0ce6447)
+
+---
+
 ## The Autonomous Banach X-13 - Vixe, Zoia Dabeni Charlotando 😄
 
 ![Image](https://github.com/user-attachments/assets/c5ab67d4-282c-4f4f-8346-58883f6dbe7c)
