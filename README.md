@@ -17,6 +17,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Blackout Action Commander 😄
+
+![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
+
+---
+
 ## The Autonomous Phantom X-13 Blackout Commander 😄
 
 ![Image](https://github.com/user-attachments/assets/e4b1442e-d1cb-4fdc-a7e4-9dac06507e19)
