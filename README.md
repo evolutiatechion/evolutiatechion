@@ -21,4 +21,8 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Phantom X-14 Navigator 😄
+
+---
+
 ![Image](https://github.com/user-attachments/assets/bbf1e7ba-d0ba-416d-a6cd-eb8da66e8a20)
