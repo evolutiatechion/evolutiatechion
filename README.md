@@ -15,11 +15,14 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-## The Phantom X-14 Vehicle 😄
+---
+
+## The Autonomous Phantom X-14 Explorer 😄
 
 ---
 
-![Image](https://github.com/user-attachments/assets/4a88f414-62a6-4541-ad20-518c3b35f01b)
+![Image](https://github.com/user-attachments/assets/85989d13-ad6a-43a5-ab35-ff0e70badf86)
+
 
 ---
 
@@ -28,3 +31,11 @@ Here are some ideas to get you started:
 ---
 
 ![Image](https://github.com/user-attachments/assets/bbf1e7ba-d0ba-416d-a6cd-eb8da66e8a20)
+
+---
+
+## The Phantom X-14 Vehicle 😄
+
+---
+
+![Image](https://github.com/user-attachments/assets/4a88f414-62a6-4541-ad20-518c3b35f01b)
