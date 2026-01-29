@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Blackout Roletrando 😄
+
+![Image](https://github.com/user-attachments/assets/3ae56baa-87cd-4f6b-b40c-59330dbc5e7d)
+
+---
+
 ## The Autonomous Banach X-13 Blackout Andajar 😄
 
 ![Image](https://github.com/user-attachments/assets/0aa27b6b-3da9-47a6-a424-1b3f021bb503)
