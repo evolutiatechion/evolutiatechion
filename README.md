@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 ---
 
-## Evolution Technologies - The Emulator Arma Paia - The Novel Research and Prototype 😄
+## The Emulator Arma Paia 😄
 
 ---
 
