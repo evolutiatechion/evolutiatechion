@@ -23,6 +23,13 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 - This is Show, The Nana Mania 😄
+
+
+![Image](https://github.com/user-attachments/assets/7aff5290-334e-4ac1-a4b8-89cd0b692338)
+
+---
+
 ## The Autonomous Banach X-13 - The Front-Side Pinou 😄
 
 ![Image](https://github.com/user-attachments/assets/3a5f7ebd-f5a3-4435-b78d-b8e9a0ccd42d)
