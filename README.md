@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Pirocao 😄
+
+![Image](https://github.com/user-attachments/assets/635cadf0-33f2-43a8-b3d6-fc0125e35cb6)
+
+---
+
 ## The Autonomous Banach X-13 Ku Keimado 😄
 
 ![Image](https://github.com/user-attachments/assets/364a1b2d-a0f1-4db3-a39d-77090de6eddd)
