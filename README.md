@@ -1,7 +1,3 @@
-## Evolution Technologies - The Novel Research and Prototype⚡
-
----
-
 ## The Autonomous Banach X-13 Blackout Action Commander 😄
 
 ![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
@@ -22,6 +18,16 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+---
+
+## Evolution Technologies - The Emulator Arma Paia - The Novel Research and Prototype ⚡
+
+---
+
+## The Autonomous Banach X-13 Water Bosta 😄
+
+![Image](https://github.com/user-attachments/assets/af2dd064-f8af-4ce0-a2b4-7f7749cd1251)
 
 ---
 
