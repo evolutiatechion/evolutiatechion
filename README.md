@@ -23,15 +23,15 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Vixe Mamis and Manos Brother 😄
-
-![Image](https://github.com/user-attachments/assets/338639a2-4fb4-4f29-b823-b4f0533bc13f)
-
----
-
 ## The 4X-DVD - Front-Side View, Master of Katia, Oh Vei Papis 😄
 
 ![Image](https://github.com/user-attachments/assets/8ea20721-a306-4fa2-8ab0-1694cbf977b6)
+
+---
+
+## The 4X-DVD - Vixe Mamis and Manos Brother 😄
+
+![Image](https://github.com/user-attachments/assets/338639a2-4fb4-4f29-b823-b4f0533bc13f)
 
 ---
 
