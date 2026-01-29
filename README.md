@@ -25,6 +25,12 @@ Here are some ideas to get you started:
 
 ---
 
+## The Autonomous Banach X-13 Panelada 😄
+
+![Image](https://github.com/user-attachments/assets/6ae29b8b-4b42-4bf7-8492-d48d19146de0)
+
+---
+
 ## The Autonomous Banach X-13 Buxada 😄
 
 ![Image](https://github.com/user-attachments/assets/65c6a8fe-e38c-4bd5-83eb-b941d0766b6d)
