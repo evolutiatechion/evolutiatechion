@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 ---
 
-## Baruch HaShem, Ve Emunah, Ve Torateinu 
+## Baruch HaShem, Ve Emunah, Ve Torateinu (HA,HA,HA,HA)
 
 **- Davadao Ben Zaita Skandinavo and Merabia Zaita Bate Shaul Beniamin**
 
