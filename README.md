@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 ## Baruch HaShem, Ve Emunah, Ve Torateinu (HA,HA,HA,HA)
 
-**- Davadao and Moroca (Que Reia Zois Vois) ???**
+**Davadao and Moroca (Que Reia Zois Vois) ??? Now is Arasta Foot**
 
 
 ![Image](https://github.com/user-attachments/assets/3ac2a5a5-2678-4a3b-9c6d-7a7f0d9ea8d2)
