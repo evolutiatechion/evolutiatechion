@@ -17,15 +17,13 @@ Here are some ideas to get you started:
 
 ---
 
-## Mariana Zaita, Just Of Pilot - Young Girl 😄
-
-![Image](https://github.com/user-attachments/assets/6c99a020-8319-4196-960d-c103dd63a2d9)
-
----
-
 ## Davada and Mariana Zaita, Young People. 😄
 
 ![Image](https://github.com/user-attachments/assets/9423fdd9-14bd-42c5-b105-f11aa7df4836)
+
+---
+
+![Image](https://github.com/user-attachments/assets/500b9dd4-3ae2-4cae-a73d-af50043d961a)
 
 ---
 
@@ -34,6 +32,12 @@ Here are some ideas to get you started:
 ---
 
 ![Image](https://github.com/user-attachments/assets/30d1b53a-9d66-4501-8bdd-64e1566f4d63)
+
+---
+
+## Mariana Zaita, Just Of Pilot - Young Girl 😄
+
+![Image](https://github.com/user-attachments/assets/6c99a020-8319-4196-960d-c103dd63a2d9)
 
 ---
 
