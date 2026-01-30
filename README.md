@@ -23,6 +23,8 @@ Here are some ideas to get you started:
 
 ## Davada and Mariana Zaita, Young People. 😄
 
+![Image](https://github.com/user-attachments/assets/00ce963d-24d5-4921-a1d6-018667c61c45)
+
 ---
 
 ## Davada and Mariana Zaita, Young People. 😄
