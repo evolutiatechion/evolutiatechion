@@ -33,7 +33,7 @@ Here are some ideas to get you started:
 
 ---
 
-## Caniggia Filho dos Ventos (River Plate-The Contradiction) 😄
+## Caniggia Filho dos Ventos - River Plate (The Contradiction) 😄
 
 ---
 
