@@ -17,6 +17,13 @@ Here are some ideas to get you started:
 
 ---
 
+**Baruch HaShem, Davadao Skandinavo**
+
+![Image](https://github.com/user-attachments/assets/991ac4ad-e164-4640-81a4-4262ca3a8427)
+
+
+---
+
 **Baruch HaShem, Papis Tovi Zaita - Evo Tech - Firsts Magenetium Cars**
 
 ---
