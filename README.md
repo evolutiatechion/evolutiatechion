@@ -27,6 +27,12 @@ Here are some ideas to get you started:
 
 ---
 
+## Dolph Lundgren (The Contradiction) 😄
+
+![Image](https://github.com/user-attachments/assets/f27c5690-068c-423c-b81a-7738e25e38b8)
+
+---
+
 ## Europe Band (The Contradiction) 😄
 
 ![Image](https://github.com/user-attachments/assets/564f6d5e-6c6f-46ad-a375-0afd1fa9e3ff)
