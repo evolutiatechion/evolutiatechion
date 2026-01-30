@@ -17,7 +17,9 @@ Here are some ideas to get you started:
 
 ---
 
-**Baruch HaShem, Ve Emunah , Ve Torateinu - Davadao Ben Zaita Skandinavo and Merabia Zaita Bate Shaul Beniamin**
+## Baruch HaShem, Ve Emunah, Ve Torateinu 
+
+**- Davadao Ben Zaita Skandinavo and Merabia Zaita Bate Shaul Beniamin**
 
 ![Image](https://github.com/user-attachments/assets/a1b1c4bb-c3dd-4138-84a8-5375d0b8a640)
 
