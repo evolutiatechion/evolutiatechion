@@ -17,6 +17,12 @@ Here are some ideas to get you started:
 
 ---
 
+**Baruch HaShem, Davadao Skandinavo and Mariana Just Pilot**
+
+![Image](https://github.com/user-attachments/assets/1e28a5f9-302b-4b74-a0ff-ea89fdb74784)
+
+---
+
 **Baruch HaShem, Davadao Skandinavo**
 
 ![Image](https://github.com/user-attachments/assets/991ac4ad-e164-4640-81a4-4262ca3a8427)
