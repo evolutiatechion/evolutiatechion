@@ -17,25 +17,19 @@ Here are some ideas to get you started:
 
 ---
 
-## The Autonomous Banach X-13 Blackout Action Commander 😄
-
-![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
-
----
-
-## Front-Side View, Master of Katia, Oh Vei Papis 😄
+## Master of Katia, Oh Vei Papis 😄
 
 ![Image](https://github.com/user-attachments/assets/8ea20721-a306-4fa2-8ab0-1694cbf977b6)
 
 ---
 
-## The 4X-DVD - Vixe Jumpers, Mama Super Star 😄
+## Vixe Jumpers, Mama Super Star 😄
 
 ![Image](https://github.com/user-attachments/assets/4e62a0f1-a4e9-4c75-bca1-7410c649b7df)
 
 ---
 
-## The 4X-DVD - Vixe Many Jumpers, Mama Super Star 😄
+## Vixe Many Jumpers, Mama Super Star 😄
 
 ![Image](https://github.com/user-attachments/assets/a2c8f381-e62a-46da-9705-728454ec58eb)
 
@@ -47,7 +41,7 @@ Here are some ideas to get you started:
 
 ---
 
-## Lateral-Side View, Mama Super Star, Teretete, Vixe 😄
+## Mama Super Star, Teretete, Vixe 😄
 
 ![Image](https://github.com/user-attachments/assets/4e36b0b7-8c06-49f0-84d7-3f510fac96ed)
 
@@ -59,15 +53,15 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Vixe to PULL 😄
+##  Vixe to Jumper 😄
 
 ![Image](https://github.com/user-attachments/assets/df5cc79c-767b-4dd4-b836-2dee66de26cd)
 
-## The 4X-DVD - Front-Side View, Beni Rossi 😄
+## Front-View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/15eeecbd-c05e-40a1-bf39-3052ed66ed2c)
 
-## The 4X-DVD - Back-Side View, Beni Rossi 😄
+## Back-Side View, Beni Rossi 😄
 
 ![Image](https://github.com/user-attachments/assets/0d5e4cca-206c-4d5e-a4ea-4a6887490ef0)
 
@@ -82,6 +76,12 @@ Here are some ideas to get you started:
 ## The 4X-DVD - Cable Dabeni & Bassora Dabena of Gaiatos 😄
 
 ![Image](https://github.com/user-attachments/assets/a5c52ae9-a7ae-4972-864f-a96ed0ce6447)
+
+---
+
+## The Autonomous Banach X-13 Blackout Action Commander 😄
+
+![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
 
 ---
 
