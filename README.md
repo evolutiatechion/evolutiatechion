@@ -21,6 +21,16 @@ Here are some ideas to get you started:
 
 ---
 
+## Davadao vs caniggia 😄
+
+![Image](https://github.com/user-attachments/assets/9423fdd9-14bd-42c5-b105-f11aa7df4836)
+
+---
+
+<img width="1170" height="730" alt="Image" src="https://github.com/user-attachments/assets/ee939097-b867-41af-a7e8-a79c067a199b" />
+
+---
+
 ## Davadona Hard Space, Baby (HA,HA,HA,HA)
 
 **Zoica (Infinity Energy)**
@@ -150,12 +160,6 @@ Here are some ideas to get you started:
 ## Davinho Zaita, Young Boy. 😄
 
 ![Image](https://github.com/user-attachments/assets/00ce963d-24d5-4921-a1d6-018667c61c45)
-
----
-
-## Davada and Mariana Zaita, Young People. 😄
-
-![Image](https://github.com/user-attachments/assets/9423fdd9-14bd-42c5-b105-f11aa7df4836)
 
 ---
 
