@@ -21,6 +21,12 @@ Here are some ideas to get you started:
 
 ---
 
+## Davadao and Mandonas. hahahahah
+
+![Image](https://github.com/user-attachments/assets/e06ff61d-a6c7-4ea5-9a21-235f403d0d55)
+
+---
+
 ## Davadonas Pivetas, The Gemulas. hahahahah
 
 ![Image](https://github.com/user-attachments/assets/bdee392b-eac0-47ba-96f6-b9a242e468b4)
