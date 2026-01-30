@@ -27,7 +27,13 @@ Here are some ideas to get you started:
 
 ---
 
-## Caniggia Filho dos Ventos (River Plate) 😄
+## Europe Band (The Contradiction) 😄
+
+![Image](https://github.com/user-attachments/assets/564f6d5e-6c6f-46ad-a375-0afd1fa9e3ff)
+
+---
+
+## Caniggia Filho dos Ventos (River Plate-The Contradiction) 😄
 
 ---
 
