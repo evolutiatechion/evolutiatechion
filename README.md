@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 ---
 
-## Zoica, Davadona Hard Space, Baby (HA,HA,HA,HA)
+## Zoica (Infinity Energy) Davadona Hard Space, Baby (HA,HA,HA,HA)
 
 ![Image](https://github.com/user-attachments/assets/a53effff-a023-44d3-a066-bd28715417a6)
 
