@@ -17,6 +17,12 @@ Here are some ideas to get you started:
 
 ---
 
+## Davada Young Boy and Mariama Zaita Young Girl, Papis Tech-Evo, Baruch HaShem 😄
+
+![Image](https://github.com/user-attachments/assets/30d1b53a-9d66-4501-8bdd-64e1566f4d63)
+
+---
+
 ## Master of Katia, Oh Vei Papis 😄
 
 ![Image](https://github.com/user-attachments/assets/8ea20721-a306-4fa2-8ab0-1694cbf977b6)
