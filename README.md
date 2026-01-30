@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 ---
 
-## Davada and Mariama Zaita, Young People. 😄
+## Davada and Mariana Zaita, Young People. 😄
 
 **Baruch HaShem, Papis Tovi Zaita - Evo Tech**
 
