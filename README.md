@@ -15,6 +15,16 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+---
+
+**Baruch HaShem, Papis Tovi Zaita - Evo Tech - Firsts Magenetium Cars**
+
+---
+
+![Image](https://github.com/user-attachments/assets/30d1b53a-9d66-4501-8bdd-64e1566f4d63)
+
+---
+
 ## Davada and Mariana Zaita, 28 Years Old. 😄
 
 ![Image](https://github.com/user-attachments/assets/61bff232-29df-4052-b169-e415566aafc6)
@@ -34,14 +44,6 @@ Here are some ideas to get you started:
 ---
 
 ![Image](https://github.com/user-attachments/assets/500b9dd4-3ae2-4cae-a73d-af50043d961a)
-
----
-
-**Baruch HaShem, Papis Tovi Zaita - Evo Tech - Firsts Magenetium Cars**
-
----
-
-![Image](https://github.com/user-attachments/assets/30d1b53a-9d66-4501-8bdd-64e1566f4d63)
 
 ---
 
