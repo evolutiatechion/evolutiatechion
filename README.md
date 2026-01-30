@@ -20,6 +20,12 @@ Here are some ideas to get you started:
 
 ---
 
+## Davadao and Davadinha Mariana in Rolezim
+
+![Image](https://github.com/user-attachments/assets/b91a64a6-e52b-42e7-9bd5-322ff88289aa)
+
+---
+
 ## Davadao and Davadona Zaitaba
 
 ![Image](https://github.com/user-attachments/assets/32880e1d-65d9-45d8-92d6-97b26ddaf299)
