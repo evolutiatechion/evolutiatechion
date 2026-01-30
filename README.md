@@ -15,6 +15,10 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+## Davada and Mariana Zaita, 28 Years Old. 😄
+
+![Image](https://github.com/user-attachments/assets/61bff232-29df-4052-b169-e415566aafc6)
+
 ---
 
 ## Davada and Mariana Zaita, Young People. 😄
