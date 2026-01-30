@@ -17,6 +17,12 @@ Here are some ideas to get you started:
 
 ---
 
+**Baruch HaShem, Ve Emunah , Ve Torateinu - Davadao Skandinavo and Merabia Zaita**
+
+![Image](https://github.com/user-attachments/assets/a1b1c4bb-c3dd-4138-84a8-5375d0b8a640)
+
+---
+
 **Baruch HaShem, Ve Emunah , Ve Torateinu - Tovi, Davadao Skandinavo and Mikaia Zaita**
 
 ![Image](https://github.com/user-attachments/assets/8f1fe09b-485c-4d5d-a30c-6dc8e9f0dbd1)
