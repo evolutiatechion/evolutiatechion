@@ -15,9 +15,14 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
----
 
 ## Baruch HaShem, Ve Emunah, Ve Torateinu (HA,HA,HA,HA)
+
+---
+
+## Davadao and Davadona Zaitaba
+
+![Image](https://github.com/user-attachments/assets/32880e1d-65d9-45d8-92d6-97b26ddaf299)
 
 ---
 
