@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 ---
 
-**- Davadao Skandinavo Highest Rotation**
+**- Davadao Skandinavo in Highest Rotation**
 
 ![Image](https://github.com/user-attachments/assets/b7f698df-adbb-4163-94b8-d79a1797e8db)
 
