@@ -19,7 +19,8 @@ Here are some ideas to get you started:
 
 ## Baruch HaShem, Ve Emunah, Ve Torateinu (HA,HA,HA,HA)
 
-**De Volta para o futuro, Pé no Chão. Que é Quem ??? Misturou tudo de novo??? SHUASHUASHUASHUA**
+**- De Volta para o futuro, Pé no Chão. Que é Quem ??? Misturou tudo de novo??? SHUASHUASHUASHUA**
+**- Carro Voador é Coisa do Passado, Agora é Pé no Chão!!! SHUASHUASHUASHUA**
 
 ![Image](https://github.com/user-attachments/assets/e0636c91-8f34-4ae0-8488-924f493487b3)
 
