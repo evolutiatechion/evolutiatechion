@@ -19,7 +19,13 @@ Here are some ideas to get you started:
 
 ## Davada and Mariana Zaita, Young People. 😄
 
+![Image](https://github.com/user-attachments/assets/9423fdd9-14bd-42c5-b105-f11aa7df4836)
+
+---
+
 **Baruch HaShem, Papis Tovi Zaita - Evo Tech - Firsts Magenetium Cars**
+
+---
 
 ![Image](https://github.com/user-attachments/assets/30d1b53a-9d66-4501-8bdd-64e1566f4d63)
 
