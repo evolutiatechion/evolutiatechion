@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 **De Volta para o futuro, Pé no Chão. Que é Quem ??? Misturou tudo de novo??? SHUASHUASHUASHUA**
 
-![Image](https://github.com/user-attachments/assets/22cc2632-cc1f-4a2e-ac61-f6f26b0f0464)
+![Image](https://github.com/user-attachments/assets/e0636c91-8f34-4ae0-8488-924f493487b3)
 
 ---
 
