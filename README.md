@@ -20,6 +20,13 @@ Here are some ideas to get you started:
 
 ---
 
+## Davadao Rastafarian and Mariana Boba Sponja
+
+
+![Image](https://github.com/user-attachments/assets/b1bce694-a5db-48f5-9eff-dfae68f34299)
+
+---
+
 ## Davadao in Levitation
 
 ---
