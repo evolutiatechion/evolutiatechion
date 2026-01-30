@@ -21,6 +21,12 @@ Here are some ideas to get you started:
 
 ---
 
+**- Davadao Skandinavo in Kuale Mano???**
+
+![Image](https://github.com/user-attachments/assets/2f9c05cc-cd94-48eb-9b6f-5ff61152798d)
+
+---
+
 **- Davadao Skandinavo in Highest Rotation**
 
 ![Image](https://github.com/user-attachments/assets/b7f698df-adbb-4163-94b8-d79a1797e8db)
