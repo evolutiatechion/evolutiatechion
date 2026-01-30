@@ -20,6 +20,14 @@ Here are some ideas to get you started:
 
 ---
 
+## Davadao in Levitation
+
+---
+
+![Image](https://github.com/user-attachments/assets/4dcecdb8-d3c3-4344-baf6-7e73c55ef2c8)
+
+---
+
 ## Davadao and Davadinha Mariana in Rolezim
 
 ![Image](https://github.com/user-attachments/assets/b91a64a6-e52b-42e7-9bd5-322ff88289aa)
