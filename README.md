@@ -21,6 +21,13 @@ Here are some ideas to get you started:
 
 ---
 
+**- Nabaiote in Fuca no Door ???**
+
+
+![Image](https://github.com/user-attachments/assets/842d7087-2c34-402c-9836-44df377dd816)
+
+---
+
 **- Nabaiote Ariana and Dvadao Maloca ???**
 
 ![Image](https://github.com/user-attachments/assets/0be11196-40af-4470-9c28-88cdfe6b1e75)
