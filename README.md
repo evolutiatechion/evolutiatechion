@@ -21,7 +21,13 @@ Here are some ideas to get you started:
 
 ---
 
-## Autonomous Davadonas Julietas 69 in Control. hahahahah
+## Davadonas Pivetas, The Gemulas. hahahahah
+
+![Image](https://github.com/user-attachments/assets/bdee392b-eac0-47ba-96f6-b9a242e468b4)
+
+---
+
+## Davadonas in Control. hahahahah
 
 ![Image](https://github.com/user-attachments/assets/29cc046e-97e0-46d2-83ba-bcbd2e248fde)
 
