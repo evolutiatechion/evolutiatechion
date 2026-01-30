@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 ---
 
-**Baruch HaShem, Tovi, Davadao Skandinavo and Mikaia Zaita**
+**Baruch HaShem, Ve Emunah , Ve Torateinu - Tovi, Davadao Skandinavo and Mikaia Zaita**
 
 ![Image](https://github.com/user-attachments/assets/8f1fe09b-485c-4d5d-a30c-6dc8e9f0dbd1)
 
