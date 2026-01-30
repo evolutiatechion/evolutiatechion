@@ -19,6 +19,12 @@ Here are some ideas to get you started:
 
 ## Baruch HaShem, Ve Emunah, Ve Torateinu (HA,HA,HA,HA)
 
+**Que é Quem ??? Misturou tudo ??? HAHHAHAHA**
+
+![Image](https://github.com/user-attachments/assets/22cc2632-cc1f-4a2e-ac61-f6f26b0f0464)
+
+---
+
 **Que REI = VEI E TU REIA = VEIA = OLD MAN AND OLD WOMAN ??? NO UNDERSTAND ???**
 
 ![Image](https://github.com/user-attachments/assets/1a8926b5-76d5-4e05-abd5-222a93676506)
