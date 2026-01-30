@@ -21,6 +21,12 @@ Here are some ideas to get you started:
 
 ---
 
+## Autonomous Davadonas Julietas 69 in Control. hahahahah
+
+![Image](https://github.com/user-attachments/assets/29cc046e-97e0-46d2-83ba-bcbd2e248fde)
+
+---
+
 ## Davadona Juliet 69 in Control. hahahahah
 
 ![Image](https://github.com/user-attachments/assets/46f9ba93-d953-4e38-b519-16b3da7c9813)
