@@ -79,13 +79,7 @@ Here are some ideas to get you started:
 
 ---
 
-## The Autonomous Banach X-13 Blackout Action Commander 😄
-
-![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
-
----
-
-## The Autonomous Banach X-13 - Vixe, Zoia Dabeni Charlotando 😄
+## The 4X-DVD - Vixe, Zoia Dabeni Charlotando 😄
 
 ![Image](https://github.com/user-attachments/assets/c5ab67d4-282c-4f4f-8346-58883f6dbe7c)
 
@@ -94,6 +88,12 @@ Here are some ideas to get you started:
 ## The 4X-DVD - Come On, Charlote Davadao, Power On Soundao 😄
 
 ![Image](https://github.com/user-attachments/assets/44a4bc66-23a0-40e4-b2b6-11c8382e9106)
+
+---
+
+## The Autonomous Banach X-13 - Blackout Action Commander 😄
+
+![Image](https://github.com/user-attachments/assets/9dc7e06f-b4a2-406d-8dbf-be01b64ececf)
 
 ---
 
