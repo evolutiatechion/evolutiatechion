@@ -29,13 +29,13 @@ Here are some ideas to get you started:
 
 ---
 
-## The 4X-DVD - Vixe to PULL, Mama Super Star 😄
+## The 4X-DVD - Vixe Jumpers, Mama Super Star 😄
 
 ![Image](https://github.com/user-attachments/assets/4e62a0f1-a4e9-4c75-bca1-7410c649b7df)
 
 ---
 
-## The 4X-DVD - Vixe Many PULLS, Mama Super Star 😄
+## The 4X-DVD - Vixe Many Jumpers, Mama Super Star 😄
 
 ![Image](https://github.com/user-attachments/assets/a2c8f381-e62a-46da-9705-728454ec58eb)
 
