@@ -31,6 +31,10 @@ Here are some ideas to get you started:
 
 ---
 
+![Image](https://github.com/user-attachments/assets/c96ddd78-75da-4a4e-9640-5a1b05f76a98)
+
+---
+
 ## Davadona Hard Space, Baby (HA,HA,HA,HA)
 
 **Zoica (Infinity Energy)**
