@@ -17,6 +17,10 @@
    **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/;** 
 
    **- Adopting ANSI C89/90 within Posix Threads;**
+
+   **- Adopting Calculus within NULL and Zero in ANSI C89/90;**
+
+   **- Example: Set A = {0,1,2,3...};**
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
 
