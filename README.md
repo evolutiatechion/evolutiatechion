@@ -18,6 +18,14 @@ Novel research in military science on Joint Forces Commands focuses on designing
 
 ---
 
+## Roupa suja começa ser lavada em casa !!!
+
+---
+
+![Image](https://github.com/user-attachments/assets/def7465f-c73e-432b-b4a6-a0c61a1c27f5)
+
+---
+
 ![Image](https://github.com/user-attachments/assets/b6be2074-1971-4ccc-bbba-0a6b84462c10)
 
 ---
