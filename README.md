@@ -8,6 +8,10 @@
 
 ---
 
+## Basic AI Decision Making using Neuro-Fuzzy to auto-caculation wheights in vectors in B-Tree (0 to Limit)
+
+---
+
 ## - Supervised flight mode (Just a Pilot) within AI Co-Pilot; 
 
 ## - Supervised autonomous mode (Aproved Mission AI Just Pilot).
