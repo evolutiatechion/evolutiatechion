@@ -2,7 +2,9 @@
 
 ---
 
-## Roupa suja começa ser lavada em casa 
+## Roupa suja começa ser lavada em casa
+
+---
 
 ## Aguardando Ordens de Adonai Tzevaot!!!
 
