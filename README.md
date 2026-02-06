@@ -16,6 +16,10 @@
 
 ---
 
+![Image](https://github.com/user-attachments/assets/6424b921-3a6e-4d78-93cb-85b9b5b9b610)
+
+---
+
 ## Have you seen this episode ???? Who plays in modern combat warfare?
 
 ---
