@@ -1,8 +1,8 @@
-## Joints Forces Commands - Supported By Davada Beni Zaita and Halaila Beni Tzivit
+## Supported By Davada Beni Zaita and Halaila Beni Tzivit 
 
 ---
 
-## Roupa suja começa ser lavada em casa
+## Roupa suja começa ser lavada em casa - Eu não apoio EUA, NATO AND ISRAEL AND OTHERS
 
 ---
 
