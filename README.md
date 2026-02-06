@@ -8,7 +8,7 @@
 
 ---
 
-## - Supervised flight mode (Just a Pilot) within AI CO-Pilot; 
+## - Supervised flight mode (Just a Pilot) within AI Co-Pilot; 
 
 ## - Supervised autonomous mode (Aproved Mission AI Just Pilot).
 
