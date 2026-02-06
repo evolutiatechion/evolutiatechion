@@ -2,19 +2,19 @@
 
 ---
 
+## Aguardando Ordens Celestiais de Adonai Tzevaot!!!
+
+---
+
+![Image](https://github.com/user-attachments/assets/0213eb64-2fef-4919-9045-4e7dc956719f)
+
+---
+
 ## Roupa suja começa ser lavada em casa 
 
 ---
 
 ## I do not support it EUA, European Union AND ISRAEL AND OTHERS...
-
----
-
-## Aguardando Ordens de Adonai Tzevaot!!!
-
----
-
-![Image](https://github.com/user-attachments/assets/0213eb64-2fef-4919-9045-4e7dc956719f)
 
 ---
 
