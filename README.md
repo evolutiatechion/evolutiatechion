@@ -18,6 +18,10 @@ Novel research in military science on Joint Forces Commands focuses on designing
 
 ---
 
+![Image](https://github.com/user-attachments/assets/d344b9ec-d2cb-4179-840e-80e8771172e3)
+
+---
+
 ![Image](https://github.com/user-attachments/assets/df644c08-c140-404f-80a6-f28b7318682e)
 
 ---
