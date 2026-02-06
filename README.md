@@ -1,20 +1,9 @@
-## Aguardando Ordens Celestiais de Adonai Tzevaot!!!
-
----
-
-## Roupa suja começa ser lavada em casa 
-
----
-
 ## Supported By Davada Beni Zaita and Halaila Beni Tzivit 
 
 ---
 
 ![Image](https://github.com/user-attachments/assets/0213eb64-2fef-4919-9045-4e7dc956719f)
 
----
-
-## I do not support it EUA, European Union, Israel and Others ...
 
 ---
 
@@ -39,6 +28,10 @@ Novel research in military science on Joint Forces Commands focuses on designing
 ---
 
 ## Have you seen this episode ???? Who plays in modern combat warfare?
+
+---
+
+![Image](https://github.com/user-attachments/assets/975c0340-ac58-45ab-9336-8c1f7f63a4fd)
 
 ---
 
