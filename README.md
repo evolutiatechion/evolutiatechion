@@ -24,6 +24,8 @@
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
 
+   **- Using Four Colours (Green, Yellow, Blue and White) as 4 Axis or 4D.**
+
 ---   
 
 <img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
