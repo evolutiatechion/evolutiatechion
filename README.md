@@ -14,7 +14,7 @@
 
    **- Prototype Hardware using FPGA within VHDL;**
 
-   **- Prototype Software using Virtual Machine in Intel within GPGPU Nvidia;**
+   **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
 
    **- Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
 
