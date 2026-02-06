@@ -8,7 +8,7 @@
 
 ---
 
-## Basic AI Decision Making using Neuro-Fuzzy to acalculate the weights in vectors in B-Tree (0 to Max Limit of Axis)
+## Basic AI Decision Making using Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis)
 
 ---
 
