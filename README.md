@@ -1,6 +1,4 @@
-![Image](https://github.com/user-attachments/assets/0213eb64-2fef-4919-9045-4e7dc956719f)
-
-## Supported By Davada Beni Zaita and Halaila Beni Tzivit 
+## Supported By Beni Zaita
 
 ---
 
