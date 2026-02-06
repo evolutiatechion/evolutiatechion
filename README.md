@@ -14,7 +14,7 @@
 
    **- Using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis)**
    
-   **- Borukva in GPGPU using OpenCL within RIP Protocol Algorithm Principles to Next Jump Node** 
+   **- Borukva in GPGPU using OpenCL within RIP Protocol Algorithm Principles to Calculation Next Jump Node** 
 
 <img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
 
