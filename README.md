@@ -4,10 +4,6 @@
 
 ---
 
-**Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
-
----
-
 ## Solar Smart-Board within Autonomous AI
 
 ## AI decision making or AI-driven decision making 
@@ -29,6 +25,10 @@
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
 
 <img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
+
+---
+
+**Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
 
 ---
 
