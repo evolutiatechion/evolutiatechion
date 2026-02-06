@@ -18,9 +18,9 @@
 
    **- Extendend to P2P Protocol Principles to Take Command Zero Smart-Board**
    
-   **- Extended Military-Grade Security and Posix Compliance and Big O Analisys Complexity**
+   **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity**
 
-   **- Extended Using ANSI C89/90 WITHIN STANDARD COMMENTS /*@*/**. 
+   **- Extended Using ANSI C89/90 WITHIN STANDARD COMMENTS /**@**/**. 
 
 <img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
 
