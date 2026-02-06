@@ -12,9 +12,9 @@
 
 ## AI decision making or AI-driven decision making 
 
-   **- Prototype Software using Virtual Machine;**
-   
-   **- Prototype Hardware Using FPGA within VHDL;**
+   **- Prototype Hardware using FPGA within VHDL;**
+
+   **- Prototype Software using Virtual Machine in AMD RYZEN WITHIN GPGPU RADEON;**
 
    **- Using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
    
