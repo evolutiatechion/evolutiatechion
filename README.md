@@ -8,4 +8,10 @@
 
 Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.
 
+---
+
+![Image](https://github.com/user-attachments/assets/da8df648-726c-43d0-9f28-49a7d424e280)
+
+---
+
 
