@@ -12,15 +12,19 @@
 
 ## AI decision making or AI-driven decision making 
 
-   **- Using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis)**
+   **- Prototype Software using Virtual Machine;**
    
-   **- Borukva in GPGPU using OpenCL within RIP Protocol Algorithm Principles to Calculation Next Jump Node** 
+   **- Prototype Hardware Using FPGA within VHDL;**
 
-   **- Extendend to P2P Protocol Principles to Take Command Zero Smart-Board**
+   **- Using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
    
-   **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity**
+   **- Borukva in GPGPU using OpenCL within RIP Protocol Algorithm Principles to Calculation Next Jump Node;** 
 
-   **- Extended Using ANSI C89/90 WITHIN STANDARD COMMENTS /**@**/**. 
+   **- Extendend to P2P Protocol Principles to Take Command Zero Smart-Board;**
+   
+   **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
+
+   **- Extended Using ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/.** 
 
 <img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
 
