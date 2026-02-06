@@ -6,7 +6,7 @@
 
 ---
 
-## Eu não apoio EUA, OTAN AND ISRAEL AND OTHERS
+## I do not support it EUA, European Union AND ISRAEL AND OTHERS...
 
 ---
 
