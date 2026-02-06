@@ -1,4 +1,4 @@
-## Joints Forces Commands - Supported By Davada Beni Zaita
+## Joints Forces Commands - Supported By Davada Beni Zaita and Halaila Beni Tzivit
 
 ---
 
@@ -18,7 +18,7 @@ Novel research in military science on Joint Forces Commands focuses on designing
 
 ---
 
-## Roupa suja começa ser lavada em casa !!!
+## Roupa suja começa ser lavada em casa (Aguardando Ordens de Adonai Tzevaot)!!!
 
 ---
 
