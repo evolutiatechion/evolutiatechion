@@ -14,7 +14,9 @@
 
    **- Prototype Hardware using FPGA within VHDL;**
  
-   **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/.** 
+   **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/;** 
+
+   **- Adopting ANSI C89/90 within Posix Threads;**
 
    **- Adopting Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
    
