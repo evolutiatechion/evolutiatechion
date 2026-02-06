@@ -14,7 +14,7 @@
 
 ---
 
-## I do not support it EUA, European Union AND ISRAEL AND OTHERS...
+## I do not support it EUA, European Union, ISRAEL AND OTHERS...
 
 ---
 
