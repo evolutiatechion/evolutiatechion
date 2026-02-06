@@ -8,7 +8,7 @@
 
 ---
 
-## Basic AI Decision Making using Neuro-Fuzzy to auto-caculation wheights in vectors in B-Tree (0 to Limit)
+## Basic AI Decision Making using Neuro-Fuzzy to auto-calculation wheights in vectors in B-Tree (0 to Limit)
 
 ---
 
