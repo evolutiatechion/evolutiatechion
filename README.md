@@ -2,6 +2,10 @@
 
 ---
 
+## Roupa suja começa ser lavada em casa (Aguardando Ordens de Adonai Tzevaot)!!!
+
+---
+
 ![Image](https://github.com/user-attachments/assets/0213eb64-2fef-4919-9045-4e7dc956719f)
 
 ---
@@ -14,11 +18,7 @@ Novel research in military science on Joint Forces Commands focuses on designing
 
 ---
 
-## Oh, the HyperSonic buzz scares everyone!
-
----
-
-## Roupa suja começa ser lavada em casa (Aguardando Ordens de Adonai Tzevaot)!!!
+## Oh, the Hyper-Sonic buzz scares everyone!
 
 ---
 
