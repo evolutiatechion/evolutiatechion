@@ -2,7 +2,11 @@
 
 ---
 
-## Roupa suja começa ser lavada em casa - Eu não apoio EUA, NATO AND ISRAEL AND OTHERS
+## Roupa suja começa ser lavada em casa 
+
+---
+
+## Eu não apoio EUA, OTAN AND ISRAEL AND OTHERS
 
 ---
 
