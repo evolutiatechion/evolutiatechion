@@ -17,6 +17,10 @@
    **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/;** 
 
    **- Adopting ANSI C89/90 within Posix Threads;**
+   
+   **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
+
+   **- Using Four Colours (Green, Yellow, Blue and White) as 4 Axis or 4D.**
 
    **- Adopting Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
    
@@ -24,10 +28,6 @@
 
    **- Extendend to P2P Protocol Principles to Take Command Zero Smart-Board;**
    
-   **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
-
-   **- Using Four Colours (Green, Yellow, Blue and White) as 4 Axis or 4D.**
-
 ---   
 
 <img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
