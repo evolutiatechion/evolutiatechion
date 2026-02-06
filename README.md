@@ -14,7 +14,9 @@
 
    **- Prototype Hardware using FPGA within VHDL;**
 
-   **- Prototype Software using Virtual Machine in AMD RYZEN WITHIN GPGPU RADEON;**
+   **- Prototype Software using Virtual Machine in Intel within GPGPU Nvidia;**
+
+   **- Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
 
    **- Using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
    
