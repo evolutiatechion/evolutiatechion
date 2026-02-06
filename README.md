@@ -1,12 +1,12 @@
+## Aguardando Ordens Celestiais de Adonai Tzevaot!!!
+
+---
+
 ## Supported By Davada Beni Zaita and Halaila Beni Tzivit 
 
 ---
 
 ![Image](https://github.com/user-attachments/assets/0213eb64-2fef-4919-9045-4e7dc956719f)
-
----
-
-## Aguardando Ordens Celestiais de Adonai Tzevaot!!!
 
 ---
 
