@@ -8,9 +8,11 @@
 
 ---
 
-## Smart Board within Autonomous AI
+## Solar Smart-Board within Autonomous AI
 
-## AI Decision Making using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);
+## AI Decision Making Decision or AI Driven Making Decision 
+
+   **- Using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis)**
 
 ## Incrementation within RIP Protocol Algorithm Principles to Cluster Next Jump using to Borukva in GPGPU using OpenCL.
 
