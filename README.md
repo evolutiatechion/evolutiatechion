@@ -8,10 +8,6 @@
 
 ---
 
-![Image](https://github.com/user-attachments/assets/1dd898e6-bbc5-44e8-a4d8-c2047c20a39a)
-
----
-
 ![Image](https://github.com/user-attachments/assets/def7465f-c73e-432b-b4a6-a0c61a1c27f5)
 
 ---
@@ -21,6 +17,10 @@
 ---
 
 ## Have you seen this episode ???? Who plays in modern combat warfare?
+
+---
+
+![Image](https://github.com/user-attachments/assets/1dd898e6-bbc5-44e8-a4d8-c2047c20a39a)
 
 ---
 
