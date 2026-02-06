@@ -8,7 +8,9 @@
 
 ---
 
-## Supervised manned flight mode (Just a Pilot) and Supervised autonomous mode (Aproved Mission AI)
+## - Supervised manned flight mode (Just a Pilot); 
+
+## - Supervised autonomous mode (Aproved Mission AI).
 
 ---
 
