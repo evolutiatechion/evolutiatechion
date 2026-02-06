@@ -14,6 +14,10 @@ Novel research in military science on Joint Forces Commands focuses on designing
 
 ---
 
+## Oh, the HyperSonic buzz scares everyone!
+
+---
+
 ## Have you seen this episode ???? Who plays in modern combat warfare?
 
 ---
