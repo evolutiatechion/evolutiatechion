@@ -8,6 +8,10 @@
 
 ---
 
+## Supervised manned flight mode (Just a Pilot) and Supervised autonomous mode (Aproved Mission AI)
+
+---
+
 ![Image](https://github.com/user-attachments/assets/a9932842-e592-4a99-b2ae-10d5374ff524)
 
 ---
