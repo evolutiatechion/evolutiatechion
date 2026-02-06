@@ -16,17 +16,17 @@
 
    **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
 
-   **- Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
+   **- "OR" Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
+ 
+   **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/.** 
 
-   **- Using Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
+   **- Adopting Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
    
    **- Borukva in GPGPU using OpenCL within RIP Protocol Algorithm Principles to Calculation Next Jump Node;** 
 
    **- Extendend to P2P Protocol Principles to Take Command Zero Smart-Board;**
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
-
-   **- Extended Using ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/.** 
 
 <img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
 
