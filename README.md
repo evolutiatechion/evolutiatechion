@@ -18,6 +18,10 @@ Novel research in military science on Joint Forces Commands focuses on designing
 
 ---
 
+![Image](https://github.com/user-attachments/assets/b6be2074-1971-4ccc-bbba-0a6b84462c10)
+
+---
+
 ## Have you seen this episode ???? Who plays in modern combat warfare?
 
 ---
