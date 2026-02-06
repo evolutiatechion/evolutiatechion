@@ -8,11 +8,11 @@
 
 ## AI decision making or AI-driven decision making 
 
-   **- Prototype Hardware using FPGA within VHDL;**
-
    **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
 
    **- "OR" Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
+
+   **- Prototype Hardware using FPGA within VHDL;**
  
    **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/.** 
 
