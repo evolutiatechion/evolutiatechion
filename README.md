@@ -26,9 +26,9 @@
 
    **- Adopting ANSI C89/90 within Posix Threads;**
 
-   **- Adopting NULL, Exists, Does Not Exist, and Zero in Calculus using to ANSI C89/90;**
-
    **- Adopting Pre-Calculus (Linear Algebra), Calculus One, Two, Three;**
+
+   **- Adopting NULL, Exists, Does Not Exist, and Zero in Calculus using to ANSI C89/90;**
 
    **- Example: Set A = {...;-2.0;-1.0;0.0;0.1;0.2;0.3;0.4;0.5;0.6;0.7;0.8;0.9;1,2,3...};**
    
