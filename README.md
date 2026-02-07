@@ -1,4 +1,4 @@
-#### Nowadays - He was elevated to Colonel Sousa as a Test Pilot in F-16
+#### Nowadays - I was promoted to Colonel Sousa as a combat pilot in F-16 tests.
 
 ![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
 
