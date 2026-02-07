@@ -1,6 +1,6 @@
 ---
 
-## Saindo de quiriat araba To Europe, Buruch HaShem
+## Saindo de quiriat araba To Europe, Buruch HaShem.
 
 ## Aqui me chamavam de Reboni Sousa. hahahhahah 
 
