@@ -1,4 +1,4 @@
-## Observador Avancado in Ukraine War
+## Forward Observer in Ukraine War as Major Sousa
 
 ![Image](https://github.com/user-attachments/assets/3286c32e-f3d3-40ce-91e3-7e1ababcf00b)
 
