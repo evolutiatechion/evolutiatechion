@@ -8,6 +8,12 @@
 
 ---
 
+#### Aspirina D Sousa in Syria December 31, 2019 - Testing my first high-tech military combat
+
+![Image](https://github.com/user-attachments/assets/0f85e39d-4cfb-406e-a76c-ebcfb6559079)
+
+---
+
 #### Consegui sair vivo escalando o muro, foi HaShem que me salvou !!!! 
 
 #### Continue segurando o pipoco de cima do muro de areia, para tirar o pelotão da encruzilhada !!!
@@ -15,10 +21,6 @@
 #### Como Aspirante a Oficial e Subcomandante do pelotão
 
 ---
-
-#### Aspirina D Sousa in Syria December 31, 2019 - Testing my first high-tech military combat
-
-![Image](https://github.com/user-attachments/assets/0f85e39d-4cfb-406e-a76c-ebcfb6559079)
 
 #### Cmt Platoon - Team Leader First Lieutenant Mister Roe (Died)
 
