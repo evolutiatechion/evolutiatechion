@@ -1,3 +1,7 @@
+## Observador Avancado in Ukraine War
+
+![Image](https://github.com/user-attachments/assets/3286c32e-f3d3-40ce-91e3-7e1ababcf00b)
+
 ---
 
 ## Saindo de Quiriat Araba To Europe as Major Sousa, Baruch HaShem.
