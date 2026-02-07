@@ -1,6 +1,6 @@
 ---
 
-## Aqui me chamavam de Reboni Sousa, hahahhahah
+## Aqui me chamavam de Reboni Sousa, saindo de quiriat araba, Buruch HaShem, hahahhahah
 
 ![Image](https://github.com/user-attachments/assets/cb5d02fd-a657-46fd-b7df-e2801517ed14)
 
