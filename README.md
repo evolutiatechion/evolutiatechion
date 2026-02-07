@@ -1,4 +1,4 @@
-#### Cmt Platoon - First Lieutenant Mister Roe (Died)
+#### Cmt Platoon - Team Lider First Lieutenant Mister Roe (Died)
 
 ![Image](https://github.com/user-attachments/assets/e0055496-c2f2-484f-86c5-e8316b18497e)
 
