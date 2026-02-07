@@ -6,6 +6,8 @@
 
 #### Consegui sair vivo escalando o muro, foi HaShem que me salvou !!!! 
 
+#### Continue segurando o pipoco de cima do morro, para tirar o pelotão da encruzilhada !!!
+
 ---
 
 #### Aspirina D Sousa in Syria December 31, 2019 - Testing my first high-tech military combat
