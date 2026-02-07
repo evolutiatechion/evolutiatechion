@@ -1,6 +1,12 @@
 #### Yosifum Beni Matitiyahu. My old Roman Man's nose
 
+---
+
 ![Image](https://github.com/user-attachments/assets/3d231c82-ab40-49ca-82c2-5f84e3da19b4)
+
+---
+
+![Image](https://github.com/user-attachments/assets/3a0415b1-f753-4e8c-badd-db7f803717d2)
 
 ---
 
