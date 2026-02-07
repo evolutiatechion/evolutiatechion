@@ -9,7 +9,7 @@
 
 ---
 
-**Dissertation Title: Developed by David Sousa Oliver**  
+**Dissertation Title: Developed by David Sousa Oliver and et al.,**  
 *Architecting Integration: A Novel Framework for the Design, Optimization, and Strategic Application of Joint Forces Commands in 21st Century Warfare*
 
 ---
