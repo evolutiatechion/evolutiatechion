@@ -1,19 +1,3 @@
-#### Yosifum Beni Matitiyahu. My old Roman Man's nose
-
----
-
-![Image](https://github.com/user-attachments/assets/3d231c82-ab40-49ca-82c2-5f84e3da19b4)
-
----
-
-![Image](https://github.com/user-attachments/assets/3a0415b1-f753-4e8c-badd-db7f803717d2)
-
----
-
-#### I had nose surgery to correct a septum deviated, and several other things to look great before joining NATO.
-
----
-
 #### Nowadays - He was elevated to Colonel Sousa as a Test Pilot in F-16
 
 ![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
@@ -388,3 +372,19 @@ https://www.iso.org/standard/72642.html
 ---
 
 ![Image](https://github.com/user-attachments/assets/da8df648-726c-43d0-9f28-49a7d424e280)
+
+---
+
+#### Yosifum Beni Matitiyahu. My old Roman Man's nose
+
+---
+
+![Image](https://github.com/user-attachments/assets/3d231c82-ab40-49ca-82c2-5f84e3da19b4)
+
+---
+
+![Image](https://github.com/user-attachments/assets/3a0415b1-f753-4e8c-badd-db7f803717d2)
+
+---
+
+#### I had nose surgery to correct a septum deviated, and several other things to look great before joining NATO.
