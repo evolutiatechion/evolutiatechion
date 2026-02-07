@@ -1,3 +1,7 @@
+#### Fui Elevado a Capitao - The Special Forces Command in Syria, January 13, 2021
+
+![Image](https://github.com/user-attachments/assets/f318590e-9af2-448b-800f-bff270f41a05)
+
 #### Aspirina D Sousa in Syria February 19, 2020
 
 #### First Alpha Platoon - Team Leader First Lieutenant Sousa - Tempos Depois Voltei La
