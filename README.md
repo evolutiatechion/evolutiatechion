@@ -4,15 +4,16 @@
 ## Many problems??? Changed your location and your named, and live a life with purposed in Adonai Tzevaot.
 
 ## Reference: Tanach Bible, Avraham Avinu Actor
----
-
-**Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
 
 ---
 
 **Writing for Computer Science**
 
 https://www.amazon.com/Writing-Computer-Science-Justin-Zobel/dp/1447166388
+
+---
+
+**Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
 
 ---
 
