@@ -6,7 +6,7 @@
 
 **BIZU TO WRITING IN PORTUGUESE TO ENGLISH COMPUTER SCIENCE** 
 
- **- Proving Isomorphism Mathematical Logic;** 
+ **- Proof of Isomorphism in Mathematical Logic;** 
  
  **- Applied Gap Resolution Between Specification and Implementation;**   
 
