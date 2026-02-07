@@ -48,7 +48,7 @@
    
    **- Borukva in GPGPU using OpenCL with the principles of the RIP protocol algorithm to calculate the next node;** 
 
-   **- Extendend to P2P Protocol Principles to Take Command Zero Smart-Board;**
+   **- Extending the principles of the P2P protocol to take control of the Smart-Board Zero Control.**
    
 ---   
 
