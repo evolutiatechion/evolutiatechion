@@ -26,7 +26,7 @@
 
    **- Adopting ANSI C89/90 within Posix Threads;**
 
-   **- Adopting Calculus within NULL and Zero in ANSI C89/90;**
+   **- Adopting NULL, Exists, Does Not Exist, and Zero in Calculus using to ANSI C89/90;**
 
    **- Adopting Pre-Calculus (Linear Algebra), Calculus One, Two, Three;**
 
