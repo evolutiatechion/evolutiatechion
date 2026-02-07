@@ -1,3 +1,7 @@
+#### Nowadays - he was elevated to Colonel Souza as a Test Pilot in F-16
+
+![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
+
 #### Fui Elevado a Major Sousa - Transferred to Belgium, April 14, 2022
 
 ![Image](https://github.com/user-attachments/assets/d4ad0ef5-15f8-4cd4-8d33-1d7811ac6158)
