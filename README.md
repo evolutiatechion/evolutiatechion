@@ -2,10 +2,6 @@
 
 ![Image](https://github.com/user-attachments/assets/a07d58b4-dc9e-444a-98c0-9bee87ae8282)
 
-#### Cmt Platoon - Team Leader First Lieutenant Mister Roe (Died)
-
-![Image](https://github.com/user-attachments/assets/e0055496-c2f2-484f-86c5-e8316b18497e)
-
 ---
 
 #### Consegui sair vivo escalando o muro, foi HaShem que me salvou !!!! 
@@ -18,8 +14,11 @@
 
 #### Aspirina D Sousa in Syria December 31, 2019 - Testing my first high-tech military combat
 
-
 ![Image](https://github.com/user-attachments/assets/0f85e39d-4cfb-406e-a76c-ebcfb6559079)
+
+#### Cmt Platoon - Team Leader First Lieutenant Mister Roe (Died)
+
+![Image](https://github.com/user-attachments/assets/e0055496-c2f2-484f-86c5-e8316b18497e)
 
 ---
 
