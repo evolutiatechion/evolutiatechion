@@ -1,4 +1,4 @@
-#### Fui Elevado a Major Sousa - Transferred to Belgium
+#### Fui Elevado a Major Sousa - Transferred to Belgium, April 14, 2022
 
 ![Image](https://github.com/user-attachments/assets/d4ad0ef5-15f8-4cd4-8d33-1d7811ac6158)
 
