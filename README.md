@@ -1,3 +1,7 @@
+#### First Alpha Platoon Team Leader - First Lieutenant Sousa - Tempos Depois Voltei La
+
+![Image](https://github.com/user-attachments/assets/a07d58b4-dc9e-444a-98c0-9bee87ae8282)
+
 #### Cmt Platoon - Team Leader First Lieutenant Mister Roe (Died)
 
 ![Image](https://github.com/user-attachments/assets/e0055496-c2f2-484f-86c5-e8316b18497e)
@@ -9,10 +13,6 @@
 #### Continue segurando o pipoco de cima do muro de areia, para tirar o pelotão da encruzilhada !!!
 
 #### Como Aspirante a Oficial e Subcomandante do pelotão
-
-#### Ja como Team Leader First Lieutenant - Voltei la
-
-![Image](https://github.com/user-attachments/assets/a07d58b4-dc9e-444a-98c0-9bee87ae8282)
 
 ---
 
