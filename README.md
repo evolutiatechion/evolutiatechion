@@ -1,3 +1,5 @@
+#### Aspirina D Sousa in Syria February 31, 2020
+
 #### First Alpha Platoon - Team Leader First Lieutenant Sousa - Tempos Depois Voltei La
 
 ![Image](https://github.com/user-attachments/assets/a07d58b4-dc9e-444a-98c0-9bee87ae8282)
