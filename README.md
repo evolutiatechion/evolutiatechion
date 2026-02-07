@@ -1,6 +1,6 @@
 ---
 
-## Saindo de Quiriat Araba To Europe, Baruch HaShem.
+## Saindo de Quiriat Araba To Europe as Major Sousa, Baruch HaShem.
 
 ## Aqui me chamavam de Reboni Sousa. hahahhahah 
 
