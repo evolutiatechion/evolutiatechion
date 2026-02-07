@@ -1,4 +1,4 @@
-#### Yosifum Beni Matitiyahu. My old Roman man's nose
+#### Yosifum Beni Matitiyahu. My old Roman Man's nose
 
 ![Image](https://github.com/user-attachments/assets/3d231c82-ab40-49ca-82c2-5f84e3da19b4)
 
