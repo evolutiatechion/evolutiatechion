@@ -10,6 +10,12 @@
 
 ---
 
+**Writing for Computer Science**
+
+https://www.amazon.com/Writing-Computer-Science-Justin-Zobel/dp/1447166388
+
+---
+
 **Developed by David Sousa Oliver and et al.,**
 
 **Doctor Thesis Dissertation Title:**  
