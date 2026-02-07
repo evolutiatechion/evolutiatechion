@@ -1,7 +1,7 @@
 
 ![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
 
-## Many problems??? Change your location and your name, and live a life with purpose in Adonai Tzevaot.
+## Many problems??? Changed your location and your named, and live a life with purposed in Adonai Tzevaot.
 
 ---
 
