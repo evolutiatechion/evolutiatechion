@@ -1,4 +1,4 @@
-### Aspirina D Sousa in Sirian 31 December 2019 - Testing my first high-tech military combat
+### Aspirina D Sousa in Sirian December 31, 2019 - Testing my first high-tech military combat
 
 
 ![Image](https://github.com/user-attachments/assets/0f85e39d-4cfb-406e-a76c-ebcfb6559079)
