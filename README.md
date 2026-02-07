@@ -1,41 +1,3 @@
-#### Nowadays - I was promoted to Colonel Sousa as a combat pilot in F-16 tests.
-
-![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
-
-#### Fui Elevado a Major Sousa - Transferred to Belgium, April 14, 2022
-
-![Image](https://github.com/user-attachments/assets/d4ad0ef5-15f8-4cd4-8d33-1d7811ac6158)
-
-#### Fui Elevado a Capitao Sousa - The Special Forces Command in Syria, January 13, 2021
-
-![Image](https://github.com/user-attachments/assets/f318590e-9af2-448b-800f-bff270f41a05)
-
-#### First Alpha Platoon - Team Leader First Lieutenant Sousa - February 19, 2020 
-
-![Image](https://github.com/user-attachments/assets/a07d58b4-dc9e-444a-98c0-9bee87ae8282)
-
----
-
-#### Aspirina D Sousa in Syria December 31, 2019 - Testing my first high-tech military combat
-
-![Image](https://github.com/user-attachments/assets/0f85e39d-4cfb-406e-a76c-ebcfb6559079)
-
----
-
-#### Consegui sair vivo escalando o muro, foi HaShem que me salvou !!!! 
-
-#### Continue segurando o pipoco de cima do muro de areia, para tirar o pelotão da encruzilhada !!!
-
-#### Como Aspirante a Oficial e Subcomandante do pelotão
-
----
-
-#### Cmt Platoon - Team Leader First Lieutenant Mister Roe (Died)
-
-![Image](https://github.com/user-attachments/assets/e0055496-c2f2-484f-86c5-e8316b18497e)
-
----
-
 **Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
 
 ---
@@ -388,3 +350,43 @@ https://www.iso.org/standard/72642.html
 ---
 
 #### I had nose surgery to correct a septum deviated, and several other things to look great before joining NATO.
+
+---
+
+#### Nowadays - I was promoted to Colonel Sousa as a combat pilot in F-16 tests.
+
+![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
+
+#### Fui Elevado a Major Sousa - Transferred to Belgium, April 14, 2022
+
+![Image](https://github.com/user-attachments/assets/d4ad0ef5-15f8-4cd4-8d33-1d7811ac6158)
+
+#### Fui Elevado a Capitao Sousa - The Special Forces Command in Syria, January 13, 2021
+
+![Image](https://github.com/user-attachments/assets/f318590e-9af2-448b-800f-bff270f41a05)
+
+#### First Alpha Platoon - Team Leader First Lieutenant Sousa - February 19, 2020 
+
+![Image](https://github.com/user-attachments/assets/a07d58b4-dc9e-444a-98c0-9bee87ae8282)
+
+---
+
+#### Aspirina D Sousa in Syria December 31, 2019 - Testing my first high-tech military combat
+
+![Image](https://github.com/user-attachments/assets/0f85e39d-4cfb-406e-a76c-ebcfb6559079)
+
+---
+
+#### Consegui sair vivo escalando o muro, foi HaShem que me salvou !!!! 
+
+#### Continuei segurando o pipoco de cima do muro de areia, para tirar o pelotão da encruzilhada !!!
+
+#### Como Aspirante a Oficial e Subcomandante do pelotão
+
+---
+
+#### Cmt Platoon - Team Leader First Lieutenant Mister Roe (Died)
+
+![Image](https://github.com/user-attachments/assets/e0055496-c2f2-484f-86c5-e8316b18497e)
+
+---
