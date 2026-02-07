@@ -1,4 +1,4 @@
-### Aspirina D Sousa in Sirian 2019 - Test My First High Tech Military Combat
+### Aspirina D Sousa in Sirian 2019 - Testing my first high-tech military combat
 
 
 ![Image](https://github.com/user-attachments/assets/0f85e39d-4cfb-406e-a76c-ebcfb6559079)
