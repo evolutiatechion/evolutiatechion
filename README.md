@@ -8,23 +8,33 @@
 
 ## AI decision making or AI-driven decision making 
 
-   **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
+**BIZU TO WRITING IN PORTUGUESE TO ENGLISH COMPUTER SCIENCE** 
 
-   **- "OR" Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
+  **- Português: Eu Faço Ciência da Computação;** 
 
-   **- Prototype Hardware using FPGA within VHDL;**
- 
+  **- GAP Contradiction: Eu Faço Computador Ciência;**
+
+  **- English: I study Computer Science.**
+
    **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/;** 
 
    **- Adopting ANSI C89/90 within Posix Threads;**
 
    **- Adopting Calculus within NULL and Zero in ANSI C89/90;**
 
-   **- Adopting Pre-Calculus, Calculus One, Two, Three;**
+   **- Adopting Pre-Calculus (Linear Algebra), Calculus One, Two, Three;**
 
    **- Example: Set A = {...;-2.0;-1.0;0.0;0.1;0.2;0.3;0.4;0.5;0.6;0.7;0.8;0.9;1,2,3...};**
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
+   
+
+   **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
+
+   **- "OR" Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
+
+   **- Prototype Hardware using FPGA within VHDL;**
+ 
 
    **- Using Four Colours (Green, Yellow, Blue and White) as 4 Axis or 4D.**
 
