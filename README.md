@@ -4,10 +4,6 @@
 
 ---
 
-## Solar Smart-Board within Autonomous AI
-
-## AI decision making or AI-driven decision making 
-
 **BIZU TO WRITING IN PORTUGUESE TO ENGLISH COMPUTER SCIENCE** 
 
   **- Português: Eu Faço Ciência da Computação;** 
@@ -15,6 +11,12 @@
   **- GAP Contradiction: Eu Faço Computador Ciência;**
 
   **- English: I study Computer Science.**
+
+---  
+
+## Solar Smart-Board within Autonomous AI
+
+## AI decision making or AI-driven decision making 
 
    **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/;** 
 
