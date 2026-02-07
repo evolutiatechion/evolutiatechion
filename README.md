@@ -1,8 +1,10 @@
-#### I had nose surgery to correct a septum deviated, and several other things to look great before joining NATO.
-
 #### Yosifum Beni Matitiyahu. My old Roman man's nose
 
 ![Image](https://github.com/user-attachments/assets/3d231c82-ab40-49ca-82c2-5f84e3da19b4)
+
+#### I had nose surgery to correct a septum deviated, and several other things to look great before joining NATO.
+
+---
 
 #### Nowadays - He was elevated to Colonel Sousa as a Test Pilot in F-16
 
