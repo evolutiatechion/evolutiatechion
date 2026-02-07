@@ -10,6 +10,10 @@
 
 #### Como Aspirante a Oficial e Subcomandante do pelotão
 
+#### Ja como Team Leader First Lieutenant - Voltei la
+
+![Image](https://github.com/user-attachments/assets/a07d58b4-dc9e-444a-98c0-9bee87ae8282)
+
 ---
 
 #### Aspirina D Sousa in Syria December 31, 2019 - Testing my first high-tech military combat
