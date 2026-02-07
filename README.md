@@ -160,15 +160,21 @@ This bibliography provides the scholarly bedrock upon which a novel dissertation
 
 ---
 
-## Many problems??? Changed your location and your named, and live a life with purposed in Adonai Tzevaot.
-
-## Reference: Tanach Bible, Avraham Avinu Actor
-
----
-
 **Writing for Computer Science**
 
 https://www.amazon.com/Writing-Computer-Science-Justin-Zobel/dp/1447166388
+
+---
+
+**ISO 690:2021 Information and documentation — Guidelines for bibliographic references and citations to information resources**
+
+https://www.iso.org/standard/72642.html
+
+---
+
+## Many problems??? Changed your location and your named, and live a life with purposed in Adonai Tzevaot.
+
+## Reference: Tanach Bible, Avraham Avinu Actor
 
 ---
 
