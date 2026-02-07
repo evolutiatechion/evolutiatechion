@@ -6,11 +6,13 @@
 
 **BIZU TO WRITING IN PORTUGUESE TO ENGLISH COMPUTER SCIENCE** 
 
-  **- Português: Eu Faço Ciência da Computação;** 
+ **- Proving Isomorphism Mathematical Logic and Applied Gap Resolution Between Specification and Implementation;**   
 
-  **- GAP Contradiction: Eu Faço Computador Ciência;**
+ **- Português: Eu Faço Ciência da Computação;** 
 
-  **- English: I study Computer Science.**
+ **- GAP Resolution: Eu Faço Computador Ciência;**
+
+ **- English: I study Computer Science.**
 
 ---  
 
@@ -30,15 +32,12 @@
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
 
-   **- Proving Isomorphism Mathematical Logic and Applied Gap Resolution Between Specification and Implementation;**   
-
    **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
 
    **- "OR" Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
 
    **- Prototype Hardware using FPGA within VHDL;**
  
-
    **- Using Four Colours (Green, Yellow, Blue and White) as 4 Axis or 4D.**
 
    **- Adopting Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
