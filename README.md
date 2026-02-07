@@ -1,16 +1,6 @@
 
 ![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
 
-## Many problems??? Changed your location and your named, and live a life with purposed in Adonai Tzevaot.
-
-## Reference: Tanach Bible, Avraham Avinu Actor
-
----
-
-**Writing for Computer Science**
-
-https://www.amazon.com/Writing-Computer-Science-Justin-Zobel/dp/1447166388
-
 ---
 
 **Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
@@ -167,6 +157,18 @@ Here is a comprehensive, categorized bibliography of **academic and professional
 4.  **Citation:** Ensure you use a consistent academic citation style (e.g., Chicago, APA, MLA) as required by your institution.
 
 This bibliography provides the scholarly bedrock upon which a novel dissertation on Joint Forces Commands can be credibly and authoritatively constructed.
+
+---
+
+## Many problems??? Changed your location and your named, and live a life with purposed in Adonai Tzevaot.
+
+## Reference: Tanach Bible, Avraham Avinu Actor
+
+---
+
+**Writing for Computer Science**
+
+https://www.amazon.com/Writing-Computer-Science-Justin-Zobel/dp/1447166388
 
 ---
 
