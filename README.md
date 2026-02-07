@@ -30,7 +30,7 @@
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
 
-   **- Proving Isomorphim Mathematic Logic and Applied Gap Resolution Between Specification and Implementation;**   
+   **- Proving Isomorphism Mathematical Logic and Applied Gap Resolution Between Specification and Implementation;**   
 
    **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
 
