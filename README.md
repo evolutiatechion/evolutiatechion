@@ -1,3 +1,11 @@
+---
+
+## Forward Observer in Israeli War as Lieutenant Colonel Sousa
+
+![Image](https://github.com/user-attachments/assets/d98bec5d-d5ba-4b9e-b4f4-1a871025365e)
+
+---
+
 ## Forward Observer in Russian War as Major Sousa
 
 ---
