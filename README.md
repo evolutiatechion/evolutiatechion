@@ -1,4 +1,4 @@
-#### Fiz uma cirurgia no nariz para corrigir desvio septico, antes de entrar na OTAN
+#### I had nose surgery to correct a deviated septum, and several other things to look great before joining NATO.
 
 #### Nowadays - He was elevated to Colonel Sousa as a Test Pilot in F-16
 
