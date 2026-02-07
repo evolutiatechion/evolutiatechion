@@ -29,7 +29,8 @@
    **- Example: Set A = {...;-2.0;-1.0;0.0;0.1;0.2;0.3;0.4;0.5;0.6;0.7;0.8;0.9;1,2,3...};**
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Analysis Complexity;**
-   
+
+   **- Proving Isomorphim Mathematic Logic and Applied Gap Resolution Between Specification and Implementation;**   
 
    **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
 
