@@ -1,172 +1,12 @@
+## If problems corner you, change your location and your name, and live a life with purpose in Adonai Tzevaot.
+
 ---
 
 ![Image](https://github.com/user-attachments/assets/ded3a692-c1b0-4f1c-9746-652b7c39d3be)
 
 ---
 
-**BIZU To writing in Portuguese TO writing in English for COMPUTER SCIENCE** 
-
- **- Proof of Isomorphism in Mathematical Logic;** 
- 
- **- Applied Gap Resolution Between Specification and Implementation;**   
-
- **- Português: Eu Faço Ciência da Computação;** 
-
- **- GAP Resolution: Eu Faço Computador Ciência;**
-
- **- English: I study Computer Science.**
-
----  
-
-## Solar Smart-Board within Autonomous AI
-
-## AI decision making or AI-driven decision making 
-
-   **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/;** 
-
-   **- Adopting ANSI C89/90 within Posix Threads;**
-
-   **- Adopting Pre-Calculus (Linear Algebra), Calculus One, Two, Three;**
-
-   **- Adopting NULL, Exists, Does Not Exist, and Zero in Calculus using to ANSI C89/90;**
-
-   **- Example: Set A = {...;-2.0;-1.0;0.0;0.1;0.2;0.3;0.4;0.5;0.6;0.7;0.8;0.9;1,2,3...};**
-   
-   **- Extended Military-Grade Security and Posix Compliance and Big O Complexity Analysis;**
-
-   **- Prototype software using a virtual machine on an Intel Core XXXX processor within an Nvidia GPGPU;;**
-
-   **- "OR" Prototype software using a virtual machine on AMD Ryzen with Radeon GPU;**
-
-   **- Hardware prototype using FPGA with VHDL;**
- 
-   **- Using four colors (green, yellow, blue, and white) as 4 axes or 4 dimensions;**
-
-   **- Adoption of Basic Neuro-Fuzzy Calculus to automatically calculate the weights in the vectors of the Binary Tree;**
-
-   **- (0 to the Maximum limit of the Axis or Dimensions);**
-   
-   **- Borukva in GPGPU using OpenCL with the principles of the RIP protocol algorithm to calculate the next node;** 
-
-   **- Extending the principles of the P2P protocol to take control of the Smart-Board Zero Control.**
-   
----   
-
-<img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
-
----
-
 **Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
-
----
-
-## - Supervised flight mode (Just a Pilot) within AI Co-Pilot; 
-
-## - Supervised autonomous mode (Aproved Mission AI Just Pilot).
-
----
-
-![Image](https://github.com/user-attachments/assets/a9932842-e592-4a99-b2ae-10d5374ff524)
-
----
-
-![Image](https://github.com/user-attachments/assets/d19a92be-10b3-46e7-a86e-068c05f7570e)
-
----
-
-![Image](https://github.com/user-attachments/assets/77516205-362e-46f9-9644-2e28cd0f4402)
-
----
-
-![Image](https://github.com/user-attachments/assets/a0af40cf-5c7c-49fb-8161-cb666e9c1c0e)
-
----
-
-![Image](https://github.com/user-attachments/assets/6ed756c5-f320-44ec-b787-21c7f0a15a01)
-
----
-
-![Image](https://github.com/user-attachments/assets/96b32f83-9546-4a78-9667-0b7fe19c61da)
-
----
-
-![Image](https://github.com/user-attachments/assets/85f498e6-5973-4fbc-aee4-6552578a45db)
-
----
-
-![Image](https://github.com/user-attachments/assets/054c29ec-8fbf-47ef-a319-166098c29b09)
-
----
-
-![Image](https://github.com/user-attachments/assets/def7465f-c73e-432b-b4a6-a0c61a1c27f5)
-
----
-
-![Image](https://github.com/user-attachments/assets/b6be2074-1971-4ccc-bbba-0a6b84462c10)
-
----
-
-![Image](https://github.com/user-attachments/assets/6424b921-3a6e-4d78-93cb-85b9b5b9b610)
-
----
-
-## Have you seen this episode ???? Who plays in modern combat warfare?
-
----
-
-![Image](https://github.com/user-attachments/assets/9fcb781e-01d3-4539-8bc2-643956d085fc)
-
----
-
-![Image](https://github.com/user-attachments/assets/30a64769-548f-4d87-b0eb-5ec7311e38e5)
-
----
-
-![Image](https://github.com/user-attachments/assets/3e24d91e-abef-4e13-a9c8-6ef2a3fbc9d3)
-
----
-
-![Image](https://github.com/user-attachments/assets/15026773-dadf-430a-b37a-659e4c69f6b0)
-
----
-
-![Image](https://github.com/user-attachments/assets/2b0f6715-287f-4cdd-8b3a-692bf2910fb8)
-
----
-
-![Image](https://github.com/user-attachments/assets/f1940d06-9a33-4216-9db6-f2ff1906b545)
-
----
-
-![Image](https://github.com/user-attachments/assets/a22b6633-4c10-4483-8dcb-792113768635)
-
----
-
-![Image](https://github.com/user-attachments/assets/d36b644c-b9e7-4f43-8e78-9f45b88899c6)
-
----
-
-![Image](https://github.com/user-attachments/assets/5142ea59-eb54-4883-9eec-8db49519c829)
-
----
-
-![Image](https://github.com/user-attachments/assets/1dd898e6-bbc5-44e8-a4d8-c2047c20a39a)
-
----
-
-![Image](https://github.com/user-attachments/assets/975c0340-ac58-45ab-9336-8c1f7f63a4fd)
-
----
-
-![Image](https://github.com/user-attachments/assets/d344b9ec-d2cb-4179-840e-80e8771172e3)
-
----
-
-![Image](https://github.com/user-attachments/assets/df644c08-c140-404f-80a6-f28b7318682e)
-
----
-
-![Image](https://github.com/user-attachments/assets/da8df648-726c-43d0-9f28-49a7d424e280)
 
 ---
 
@@ -317,3 +157,167 @@ Here is a comprehensive, categorized bibliography of **academic and professional
 4.  **Citation:** Ensure you use a consistent academic citation style (e.g., Chicago, APA, MLA) as required by your institution.
 
 This bibliography provides the scholarly bedrock upon which a novel dissertation on Joint Forces Commands can be credibly and authoritatively constructed.
+
+---
+
+**BIZU To writing in Portuguese TO writing in English for COMPUTER SCIENCE** 
+
+ **- Proof of Isomorphism in Mathematical Logic;** 
+ 
+ **- Applied Gap Resolution Between Specification and Implementation;**   
+
+ **- Português: Eu Faço Ciência da Computação;** 
+
+ **- GAP Resolution: Eu Faço Computador Ciência;**
+
+ **- English: I study Computer Science.**
+
+---  
+
+## Solar Smart-Board within Autonomous AI
+
+## AI decision making or AI-driven decision making 
+
+   **- Adopting ANSI C89/90 WITHIN STANDARD COMMENTS /** @ **/;** 
+
+   **- Adopting ANSI C89/90 within Posix Threads;**
+
+   **- Adopting Pre-Calculus (Linear Algebra), Calculus One, Two, Three;**
+
+   **- Adopting NULL, Exists, Does Not Exist, and Zero in Calculus using to ANSI C89/90;**
+
+   **- Example: Set A = {...;-2.0;-1.0;0.0;0.1;0.2;0.3;0.4;0.5;0.6;0.7;0.8;0.9;1,2,3...};**
+   
+   **- Extended Military-Grade Security and Posix Compliance and Big O Complexity Analysis;**
+
+   **- Prototype software using a virtual machine on an Intel Core XXXX processor within an Nvidia GPGPU;;**
+
+   **- "OR" Prototype software using a virtual machine on AMD Ryzen with Radeon GPU;**
+
+   **- Hardware prototype using FPGA with VHDL;**
+ 
+   **- Using four colors (green, yellow, blue, and white) as 4 axes or 4 dimensions;**
+
+   **- Adoption of Basic Neuro-Fuzzy Calculus to automatically calculate the weights in the vectors of the Binary Tree;**
+
+   **- (0 to the Maximum limit of the Axis or Dimensions);**
+   
+   **- Borukva in GPGPU using OpenCL with the principles of the RIP protocol algorithm to calculate the next node;** 
+
+   **- Extending the principles of the P2P protocol to take control of the Smart-Board Zero Control.**
+   
+---   
+
+<img width="939" height="202" alt="Image" src="https://github.com/user-attachments/assets/bf07e9e5-2004-417d-bba1-6e344ee18386" />
+
+---
+
+---
+
+## - Supervised flight mode (Just a Pilot) within AI Co-Pilot; 
+
+## - Supervised autonomous mode (Aproved Mission AI Just Pilot).
+
+---
+
+![Image](https://github.com/user-attachments/assets/a9932842-e592-4a99-b2ae-10d5374ff524)
+
+---
+
+![Image](https://github.com/user-attachments/assets/d19a92be-10b3-46e7-a86e-068c05f7570e)
+
+---
+
+![Image](https://github.com/user-attachments/assets/77516205-362e-46f9-9644-2e28cd0f4402)
+
+---
+
+![Image](https://github.com/user-attachments/assets/a0af40cf-5c7c-49fb-8161-cb666e9c1c0e)
+
+---
+
+![Image](https://github.com/user-attachments/assets/6ed756c5-f320-44ec-b787-21c7f0a15a01)
+
+---
+
+![Image](https://github.com/user-attachments/assets/96b32f83-9546-4a78-9667-0b7fe19c61da)
+
+---
+
+![Image](https://github.com/user-attachments/assets/85f498e6-5973-4fbc-aee4-6552578a45db)
+
+---
+
+![Image](https://github.com/user-attachments/assets/054c29ec-8fbf-47ef-a319-166098c29b09)
+
+---
+
+![Image](https://github.com/user-attachments/assets/def7465f-c73e-432b-b4a6-a0c61a1c27f5)
+
+---
+
+![Image](https://github.com/user-attachments/assets/b6be2074-1971-4ccc-bbba-0a6b84462c10)
+
+---
+
+![Image](https://github.com/user-attachments/assets/6424b921-3a6e-4d78-93cb-85b9b5b9b610)
+
+---
+
+## Have you seen this episode ???? Who plays in modern combat warfare?
+
+---
+
+![Image](https://github.com/user-attachments/assets/9fcb781e-01d3-4539-8bc2-643956d085fc)
+
+---
+
+![Image](https://github.com/user-attachments/assets/30a64769-548f-4d87-b0eb-5ec7311e38e5)
+
+---
+
+![Image](https://github.com/user-attachments/assets/3e24d91e-abef-4e13-a9c8-6ef2a3fbc9d3)
+
+---
+
+![Image](https://github.com/user-attachments/assets/15026773-dadf-430a-b37a-659e4c69f6b0)
+
+---
+
+![Image](https://github.com/user-attachments/assets/2b0f6715-287f-4cdd-8b3a-692bf2910fb8)
+
+---
+
+![Image](https://github.com/user-attachments/assets/f1940d06-9a33-4216-9db6-f2ff1906b545)
+
+---
+
+![Image](https://github.com/user-attachments/assets/a22b6633-4c10-4483-8dcb-792113768635)
+
+---
+
+![Image](https://github.com/user-attachments/assets/d36b644c-b9e7-4f43-8e78-9f45b88899c6)
+
+---
+
+![Image](https://github.com/user-attachments/assets/5142ea59-eb54-4883-9eec-8db49519c829)
+
+---
+
+![Image](https://github.com/user-attachments/assets/1dd898e6-bbc5-44e8-a4d8-c2047c20a39a)
+
+---
+
+![Image](https://github.com/user-attachments/assets/975c0340-ac58-45ab-9336-8c1f7f63a4fd)
+
+---
+
+![Image](https://github.com/user-attachments/assets/d344b9ec-d2cb-4179-840e-80e8771172e3)
+
+---
+
+![Image](https://github.com/user-attachments/assets/df644c08-c140-404f-80a6-f28b7318682e)
+
+---
+
+![Image](https://github.com/user-attachments/assets/da8df648-726c-43d0-9f28-49a7d424e280)
