@@ -4,7 +4,7 @@
 
 ---
 
-**BIZU TO WRITING IN PORTUGUESE TO ENGLISH COMPUTER SCIENCE** 
+**BIZU To writing in Portuguese TO writing in English for COMPUTER SCIENCE** 
 
  **- Proof of Isomorphism in Mathematical Logic;** 
  
@@ -34,17 +34,19 @@
    
    **- Extended Military-Grade Security and Posix Compliance and Big O Complexity Analysis;**
 
-   **- Prototype Software using Virtual Machine in Intel Core XXXX within GPGPU Nvidia;**
+   **- Prototype software using a virtual machine on an Intel Core XXXX processor within an Nvidia GPGPU;;**
 
-   **- "OR" Prototype Software using Virtual Machine in AMD RYZEN within GPGPU Radeon;**
+   **- "OR" Prototype software using a virtual machine on AMD Ryzen with Radeon GPU;**
 
-   **- Prototype Hardware using FPGA within VHDL;**
+   **- Hardware prototype using FPGA with VHDL;**
  
-   **- Using Four Colours (Green, Yellow, Blue and White) as 4 Axis or 4D.**
+   **- Using four colors (green, yellow, blue, and white) as 4 axes or 4 dimensions;**
 
-   **- Adopting Basic Calculus Neuro-Fuzzy to automatic calculation the weights in vectors in B-Tree (0 to Max Limit of Axis);**
+   **- Adoption of Basic Neuro-Fuzzy Calculus to automatically calculate the weights in the vectors of the Binary Tree;**
+
+   **- (0 to the Maximum limit of the Axis or Dimensions);**
    
-   **- Borukva in GPGPU using OpenCL within RIP Protocol Algorithm Principles to Calculation Next Jump Node;** 
+   **- Borukva in GPGPU using OpenCL with the principles of the RIP protocol algorithm to calculate the next node;** 
 
    **- Extendend to P2P Protocol Principles to Take Command Zero Smart-Board;**
    
