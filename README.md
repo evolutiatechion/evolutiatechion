@@ -9,9 +9,8 @@
 **Novel research in military science on Joint Forces Commands focuses on designing and optimizing the structures, processes, and technologies that integrate diverse military capabilities to solve complex strategic problems.**
 
 ---
-
-**Doctor Thesis Dissertation Title:**  
 **Developed by David Sousa Oliver and et al.,**
+**Doctor Thesis Dissertation Title:**  
 **A Novel Framework for the Design, Optimization, and Strategic Application of Joint Forces Commands in 21st Century Warfare**
 
 ---
