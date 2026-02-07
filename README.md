@@ -1,4 +1,4 @@
-## If problems corner you, change your location and your name, and live a life with purpose in Adonai Tzevaot.
+## Many problems??? Change your location and your name, and live a life with purpose in Adonai Tzevaot.
 
 ---
 
