@@ -4,7 +4,7 @@
 
 ## O novo computador quântico do gênio indomado do milênio
 
-https://github.com/user-attachments/assets/21233353-3e1b-44bb-b99a-b66675e5a5dc
+<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/8b2bedcd-638a-4963-b0c0-e3e62437f07f" />
 
 ---
 
