@@ -4,6 +4,14 @@
 
 ---
 
+## Manifold 5D
+
+https://github.com/user-attachments/assets/f0e7d686-ba40-4111-94f2-b3866fba47f5
+
+---
+
+## Fractal 5D
+
 https://github.com/user-attachments/assets/d295229a-7dac-4abe-9452-b9968cdb101f
 
 ---
