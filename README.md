@@ -2,7 +2,11 @@
 
 ---
 
-## Blue Angles - HAHAHAHAHAHAHA
+## 50 Tons of Blue Angles - HAHAHAHAHAHAHA
+
+---
+
+![Image](https://github.com/user-attachments/assets/1f13e526-e108-4f59-8057-9b0420803d8b)
 
 ---
 
