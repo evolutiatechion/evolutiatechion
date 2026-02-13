@@ -1,4 +1,4 @@
-## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a reason, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
+## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a razinho, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
 
 **The equation emulation was captured in slow motion**
 
