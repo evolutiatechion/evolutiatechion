@@ -2,6 +2,10 @@
 
 ---
 
+![Image](https://github.com/user-attachments/assets/76954507-cec5-4db6-872f-a26f7843c6a7)
+
+---
+
 ![Image](https://github.com/user-attachments/assets/bc6a70ae-ce31-467e-8563-f778c1056a83)
 
 ## Chupa esta manginha - HAHAHAHAHAHAHA
