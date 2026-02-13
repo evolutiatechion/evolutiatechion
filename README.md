@@ -36,7 +36,7 @@
 
 ---
 
-## Que pau grande e grosso é este, né ????
+## Strong man ????
 
 ---
 
