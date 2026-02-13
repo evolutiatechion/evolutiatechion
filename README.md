@@ -2,7 +2,13 @@
 
 ---
 
-## O novo computador quântico do gênio indomado do milênio
+## Computador 3D Quântico da Concorrência
+
+![Image](https://github.com/user-attachments/assets/06c19f8d-8dbf-4721-a70d-277d6376ede3)
+
+---
+
+## Computador 5D Quântico da Evolutia
 
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/8b2bedcd-638a-4963-b0c0-e3e62437f07f" />
 
