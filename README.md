@@ -2,7 +2,7 @@
 
 ---
 
-## Computador 3D Quântico da Concorrência
+## Computador 3D Quântico da Concorrência - 3D Kubits
 
 ![Image](https://github.com/user-attachments/assets/7f11d7d6-2b71-49b9-a622-c703bd28cdd9)
 
