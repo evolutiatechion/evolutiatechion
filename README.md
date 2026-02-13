@@ -18,6 +18,12 @@
 
 ---
 
+## 5D Quântico - Chupa Esta Manga - Complete 5D diffraction neutron physics 
+
+https://github.com/user-attachments/assets/09ba949f-999e-4e5f-aa3d-b8e8eb66fcd5
+
+---
+
 ## 5D Quântico - Complete neutron physics in 5D
 
 https://github.com/user-attachments/assets/84506698-35ce-447a-a7a4-181f3ba1787e
