@@ -2,11 +2,9 @@
 
 ---
 
-![Image](https://github.com/user-attachments/assets/7cbce596-4d09-4fbb-8715-1e021410722e)
-
----
-
 ## Blue Angles - HAHAHAHAHAHAHA
+
+![Image](https://github.com/user-attachments/assets/7cbce596-4d09-4fbb-8715-1e021410722e)
 
 ---
 
