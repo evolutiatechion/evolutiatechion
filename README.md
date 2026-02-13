@@ -2,11 +2,11 @@
 
 ---
 
-## 50 Shades of Blue On-Board
+## 50 Shades of Blue On-Board within Duralexia
 
 ---
 
-## One Drink to Duralex, etc ....
+![Image](https://github.com/user-attachments/assets/93805de6-3720-42b2-9b0e-2f29480e7d3b)
 
 ---
 
