@@ -2,7 +2,7 @@
 
 ---
 
-## 50 Tons of Blue On-Board
+## 50 Shades of Blue On-Board
 
 ---
 
