@@ -10,7 +10,7 @@
 
 ---
 
-## O que isso significa que todo mundo do razinho vai passar questão pelo kuzinho ??? 
+## O que isso significa que todo mundo do razinho vai passar questão pelo kuzinho com os baianinhos ??? 
 
 ---
 
