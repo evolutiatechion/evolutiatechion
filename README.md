@@ -4,6 +4,8 @@
 
 ## Computador 3D Quântico da Concorrência - 3D Kubits
 
+---
+
 ![Image](https://github.com/user-attachments/assets/7f11d7d6-2b71-49b9-a622-c703bd28cdd9)
 
 ---
@@ -17,6 +19,8 @@
 ---
 
 ## Computador 5D Quântico da Evolutia Techion (cristais de quartzo)
+
+---
 
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/8b2bedcd-638a-4963-b0c0-e3e62437f07f" />
 
