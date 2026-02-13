@@ -2,7 +2,11 @@
 
 ---
 
-## 50 Shades of Blue On-Board within Duralexia
+## 50 Shades of Blue On-Board
+
+---
+
+![Image](https://github.com/user-attachments/assets/c0af6652-4f31-4cab-870a-58fb950a011b)
 
 ---
 
