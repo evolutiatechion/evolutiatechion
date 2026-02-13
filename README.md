@@ -5,8 +5,6 @@
 ## Brumas de Avalon - HAHAHAHAHAHAHA
 
 
-![Image](https://github.com/user-attachments/assets/6adc674e-15c0-4c51-a60b-122234538356)
-
 ---
 
 ![Image](https://github.com/user-attachments/assets/ff73ee5f-6ab2-40da-8a8a-2fd667696231)
