@@ -2,7 +2,7 @@
 
 ---
 
-## 50 Shades of Blue On-Board within Tia Salete Sant'ana
+## 50 Shades of Blue On-Board within Salete Sant'ana
 
 ---
 
