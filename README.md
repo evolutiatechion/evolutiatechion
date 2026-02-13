@@ -1,7 +1,3 @@
-## Pense em uma micarandia - HAHAHAHAHAHAHA
-
----
-
 ## 50 Shades of Yellow On-Board
 
 ---
