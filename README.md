@@ -10,7 +10,7 @@
 
 ---
 
-## O que isso significa que todo mundo do razinho vai passar questão pelo kuzinho com os baianinhos. Vixxe no Carnival. Vão comer carne queimada no pau ??? HAHAHAHAHAHAHA
+## Isso significa que todo mundo do razinho vai passar questão pelo kuzinho com os baianinhos. Nossa, no Carneval. Será que vão comer carne queimada no pau??? HAHAHAHAHAHAHA
 
 ---
 
