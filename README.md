@@ -2,7 +2,11 @@
 
 ---
 
-## 50 Shades of Blue On-Board
+## 50 Shades of Blue On-Board within Tia Salete Sant'ana
+
+---
+
+![Image](https://github.com/user-attachments/assets/7b78c125-48af-4d87-9722-0fc3a182e0e2)
 
 ---
 
