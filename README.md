@@ -10,7 +10,7 @@
 
 ---
 
-![Image](https://github.com/user-attachments/assets/f2c78831-75ce-4556-9b37-fe0bf8122bc5)
+![Image](https://github.com/user-attachments/assets/c7a35bde-1368-43cd-8d62-7026cb346465)
 
 ---
 
