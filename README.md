@@ -1,3 +1,9 @@
+## Chupa Esta Manga - HAHAHAHAHAHAHA
+
+## Massa é a festa da Carne Queimada. Isso significa que todo mundo do razinho vai passar questão pelo kuzinho com os baianinhos. Nossa, no Carneval. Será que vão comer carne queimada no pau. Oh não, vai virar um espetinho durante o Carneval ??? HAHAHAHAHAHAHA
+
+---
+
 ## Computador 3D Quântico da Concorrência - 3D Kubits
 
 ---
@@ -7,10 +13,6 @@
 ---
 
 ## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a razinho, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
-
----
-
-## Massa é a festa da Carne Queimada. Isso significa que todo mundo do razinho vai passar questão pelo kuzinho com os baianinhos. Nossa, no Carneval. Será que vão comer carne queimada no pau. Oh não, vai virar um espetinho durante o Carneval ??? HAHAHAHAHAHAHA
 
 ---
 
@@ -59,10 +61,6 @@ https://github.com/user-attachments/assets/f0e7d686-ba40-4111-94f2-b3866fba47f5
 ## Fractal 5D
 
 https://github.com/user-attachments/assets/d295229a-7dac-4abe-9452-b9968cdb101f
-
----
-
-## Chupa Esta Manga - HAHAHAHAHAHAHA
 
 ---
 
