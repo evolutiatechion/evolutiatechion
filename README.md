@@ -10,19 +10,19 @@
 
 ---
 
-## O que isso significa que todo mundo do razinho vai passar questão pelo kuzinho ??? HAHAHAHAHAHAHA
-
----
-
-## 5D Quântico - Chupa Esta Manga
- 
----
-
 ## Computador 5D Quântico da Evolutia Techion (cristais de quartzo)
 
 ---
 
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/8b2bedcd-638a-4963-b0c0-e3e62437f07f" />
+
+---
+
+## Chupa Esta Manga - HAHAHAHAHAHAHA
+
+---
+
+## O que isso significa que todo mundo do razinho vai passar questão pelo kuzinho ??? 
 
 ---
 
