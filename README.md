@@ -76,7 +76,7 @@ https://github.com/user-attachments/assets/d295229a-7dac-4abe-9452-b9968cdb101f
 
 ---
 
-## Strong man ????
+## Strong man - Tirador de Leite do Touro ????
 
 ---
 
