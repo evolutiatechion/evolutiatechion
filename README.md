@@ -26,15 +26,22 @@
 
 ---
 
+![Image](https://github.com/user-attachments/assets/3350b954-f96b-45f3-9d3f-faa23fd4ba9b)
+
+---
+
+## Facial Flex ????
+
+![Image](https://github.com/user-attachments/assets/bdb7d51f-5274-4b49-81b7-5315aed5dab3)
+
+---
+
 ## Que pau grande e grosso é este, né ????
 
 ---
 
 ![Image](https://github.com/user-attachments/assets/f7c1b3d4-aa81-48e2-bd0d-ec9968001f97)
 
----
-
-![Image](https://github.com/user-attachments/assets/3350b954-f96b-45f3-9d3f-faa23fd4ba9b)
 
 ---
 
