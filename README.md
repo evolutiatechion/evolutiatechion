@@ -2,9 +2,10 @@
 
 ---
 
-## 3 in 1 - Blumas Boys - HAHAHAHAHAHAHA
+## Brumas de Avalon - HAHAHAHAHAHAHA
 
-![Image](https://github.com/user-attachments/assets/50734a08-93f5-4206-ae79-7c818c8e0296)
+
+![Image](https://github.com/user-attachments/assets/6adc674e-15c0-4c51-a60b-122234538356)
 
 ---
 
