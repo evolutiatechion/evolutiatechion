@@ -26,7 +26,7 @@
 
 ---
 
-## 5D Quântico - Complete 5D Neutron mass physics
+## 5D Quântico - Complete 5D Neutron Mass Physics
 
 https://github.com/user-attachments/assets/df8ff8ca-47ce-4569-a297-16979f5f7094
 
