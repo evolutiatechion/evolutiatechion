@@ -2,7 +2,11 @@
 
 ---
 
-## 50 Shades of Blue On-Board within Salete Sant'ana
+## 50 Shades of Blue On-Board within Helio Show
+
+---
+
+![Image](https://github.com/user-attachments/assets/8642835b-fbc6-437d-b241-3d5474488530)
 
 ---
 
