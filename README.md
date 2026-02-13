@@ -4,7 +4,7 @@
 
 ## Computador 3D Quântico da Concorrência
 
-![Image](https://github.com/user-attachments/assets/06c19f8d-8dbf-4721-a70d-277d6376ede3)
+![Image](https://github.com/user-attachments/assets/7f11d7d6-2b71-49b9-a622-c703bd28cdd9)
 
 ---
 
