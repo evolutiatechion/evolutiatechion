@@ -1,3 +1,9 @@
+## Pense em uma micarandia - HAHAHAHAHAHAHA
+
+---
+
+![Image](https://github.com/user-attachments/assets/bc6a70ae-ce31-467e-8563-f778c1056a83)
+
 ## Chupa esta manginha - HAHAHAHAHAHAHA
 
 ---
