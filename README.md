@@ -1,5 +1,13 @@
 ## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a razinho, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
 
+---
+
+## O novo computador quântico do gênio indomado do milênio
+
+https://github.com/user-attachments/assets/21233353-3e1b-44bb-b99a-b66675e5a5dc
+
+---
+
 **The equation emulation was captured in slow motion**
 
 ---
