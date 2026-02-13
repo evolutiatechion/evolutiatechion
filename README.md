@@ -1,6 +1,4 @@
-##  There are people who think they are indomitable geniuses out there, they say they are extremely favored for a reason, just because they have a few million, but they cannot calculate a fractal in 5D.
-
----
+## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a reason, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
 
 ---
 
