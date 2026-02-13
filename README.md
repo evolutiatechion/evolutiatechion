@@ -1,3 +1,11 @@
+## Que rola grande e grossa é esta, Hein ????
+
+---
+
+![Image](https://github.com/user-attachments/assets/3350b954-f96b-45f3-9d3f-faa23fd4ba9b)
+
+---
+
 ## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a razinho, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
 
 ---
