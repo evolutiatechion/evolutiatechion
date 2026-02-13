@@ -2,6 +2,12 @@
 
 ---
 
+## Blue Angles - HAHAHAHAHAHAHA
+
+![Image](https://github.com/user-attachments/assets/76e093ce-8351-4926-9eb4-ac4e556f99d3)
+
+---
+
 ## Brumas de Avalon - HAHAHAHAHAHAHA
 
 
