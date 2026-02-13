@@ -1,16 +1,16 @@
-## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a razinho, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
-
----
-
-## O que isso significa que todo mundo do razinho vai passar questão pelo kuzinho ??? 
-
----
-
 ## Computador 3D Quântico da Concorrência - 3D Kubits
 
 ---
 
 ![Image](https://github.com/user-attachments/assets/7f11d7d6-2b71-49b9-a622-c703bd28cdd9)
+
+---
+
+## There are people who think they are indomitable geniuses out there, they say they are extremely favored for a razinho, just because they have a few million, but they cannot calculate a fractal in 5D to emulate the equation.
+
+---
+
+## O que isso significa que todo mundo do razinho vai passar questão pelo kuzinho ??? 
 
 ---
 
