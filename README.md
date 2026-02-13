@@ -2,7 +2,7 @@
 
 ---
 
-## Massa é a festa da Carne Queimada. Isso significa que todo mundo do razinho vai passar questão pelo kuzinho com os baianinhos. Nossa, no Carneval. Será que vão comer carne queimada no pau. Oh não, vai virar um espetinho durante o Carnevalzinho ??? HAHAHAHAHAHAHA
+## Massa é a festa da carne queimada. Isso significa que todo mundo do razinho vai passar questão pelo kuzinho com os baianinhos. Nossa, no carneval. Será que vão comer carne queimada no pau. Oh não, vai virar um espetinho durante o carnevalzinho ??? HAHAHAHAHAHAHA
 
 ---
 
