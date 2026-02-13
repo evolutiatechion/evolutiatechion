@@ -4,6 +4,12 @@
 
 ## Blue Angles - HAHAHAHAHAHAHA
 
+---
+
+![Image](https://github.com/user-attachments/assets/4cbf7420-0943-45c5-8575-2eaa9765d911)
+
+---
+
 ![Image](https://github.com/user-attachments/assets/7cbce596-4d09-4fbb-8715-1e021410722e)
 
 ---
